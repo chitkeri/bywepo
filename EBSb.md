@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时24分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>实控人溢价25%增持电力现货交易标的，传递价值低估信号</h3><br><p>国电南瑞放量上涨3.8%，电网自动化业务高增。<br><br> | 来源：<code>https;//shijiebeizhizhuzhibo.org.cn
+</code></p><br><br><h3>比亚迪AH股同步涨超6%，6月销量数据超预期</h3><br><p>全国水泥行业碳减排技术升级，低碳生产线占比超60%。<br><br> | 来源：<code>https;//shijiebeizuqiuzhibomianfeirukou.com.cn
+</code></p><br><br><h3>澜起科技内存接口芯片优势：全球细分赛道的龙头价值</h3><br><p>文化产业扶持政策，文化传媒板块全线异动。<br><br> | 来源：<code>https;//tiyumianfeizhibogaoqing.com.cn
+</code></p><br><br><h3>全国健身气功交流大赛举办，覆盖超百万中老年爱好者</h3><br><p>中国男子沙滩排球队闯入亚运会决赛，创历史最佳成绩。<br><br> | 来源：<code>https;//tiyusaishiappmianfeituijian.com.cn
+</code></p><br><br><h3>多地调整最低工资标准，最高涨幅达11.5%惠及千万劳动者</h3><br><p>全球新能源投资突破2万亿美元，中国占比超40%。<br><br> | 来源：<code>https;//tiyusaishiappmianfeituijian.org.cn
+</code></p><br><br><h3>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善</h3><br><p>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价。<br><br> | 来源：<code>https;//tiyusaishimianfeizhibozaixianguankan.org.cn
+</code></p><br><br><h3>隆平高科转基因优势：种业商业化政策放开下的龙头受益</h3><br><p>尾矿资源综合利用政策，尾矿回收板块走强。<br><br> | 来源：<code>https;//tiyusaishizhiboapptuijian.org.cn
+</code></p><br><br><h3>全国县域旅游百强县榜单发布，江浙地区占比超六成</h3><br><p>东莞控股放量上涨2.2%，珠三角车流量高增。<br><br> | 来源：<code>https;//tiyusaishizhiboguankan.com.cn
+</code></p><br><br><h3>机构席位大额买入中国中铁6500万，基建龙头获长线布局</h3><br><p>北向资金大额增持天齐锂业，锂矿龙头外资持仓环比大增。<br><br> | 来源：<code>https;//tiyusaishizhibojrs.com.cn
+</code></p><br><br><h3>高管团队集体增持智慧交通标的，合计增持金额超1.2亿</h3><br><p>西部大开发新规划出台，西部基建标的全线拉升。<br><br> | 来源：<code>https;//tiyusaishizhibowang.org.cn
+</code></p><br><br><h3>国产大飞机C919批量交付，民航产业链标的上涨</h3><br><p>时间是优秀企业的朋友：陪伴好公司成长，远比做短线暴利靠谱。<br><br> | 来源：<code>https;//tiyusaishizhibozaixianguankanmianfei.com.cn
+</code></p><br><br><h3>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升</h3><br><p>机构席位大额买入洋河股份6900万，白酒龙头获长线布局。<br><br> | 来源：<code>https;//tiyuzhiboapp.org.cn
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>降准释放长期资金支持新能源，绿电板块迎来定向利好。<br><br> | 来源：<code>https;//wangqiuzhibomianfeiguankan.org.cn
+</code></p><br><br><h3>伊利股份乳制品龙头优势：国内乳业龙头的品牌与渠道</h3><br><p>中国建筑基建龙头优势：国内建筑行业的订单与规模优势。<br><br> | 来源：<code>https;//wangqiuzhibopingtaimianfei.com.cn
+</code></p><br><br><h3>数字人民币试点扩容，数字人民币产业链走强</h3><br><p>四川路桥一带一路订单落地，前三季度业绩预增超40%。<br><br> | 来源：<code>https;//wangqiuzhibozaixianzhibo.org.cn
+</code></p><br><br><h3>上半年全国文旅消费总额突破3万亿元，同比增长22%</h3><br><p>机构专用席位净买入温氏股份7400万，养殖龙头获长线加仓。<br><br> | 来源：<code>https;//wuxingtiyupindaomianfeiguankangaoqing.com.cn
+</code></p><br><br><h3>国产EDA龙头登陆科创板，核心技术打破海外垄断引市场关注</h3><br><p>农产品深加工扶持政策，农产品加工标的全线拉升。<br><br> | 来源：<code>https;//wuxingtiyuzhiboappxiazai.org.cn
+</code></p><br><br><h3>暑期托管服务全面推行，免费提供兴趣课程和作业辅导</h3><br><p>食品质量安全监管优化，头部食品标的拉升。<br><br> | 来源：<code>https;//wuxingtiyuzhiboguanwangrukou.org.cn
+</code></p><br><br><h3>国产古装剧出海热播，海外流媒体播放量突破10亿次</h3><br><p>大秦铁路煤炭运输优势：重载铁路龙头的稳定现金流。<br><br> | 来源：<code>https;//yuyan360mianfeikanqiusaizhibo.com.cn
+</code></p><br><br><h3>新型电力系统建设规划，电力设备板块走强</h3><br><p>容百科技放量拉升5.5%，高镍正极渗透率持续提升。<br><br> | 来源：<code>https;//yuyan360tiyumianfeizhibolanqiu.org.cn
