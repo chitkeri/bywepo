@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分12秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>预制菜产业标准出台，预制菜板块走强</h3><br><p>加拿大经济保持增长，能源和科技产业双驱动。<br><br> | 来源：<code>https://kan-pianwangzhan.com.cn
+</code></p><br><br><h3>全球医疗健康支出突破10万亿美元，老龄化驱动需求增长</h3><br><p>赣锋锂业放量上涨，固态电池技术落地加速。<br><br> | 来源：<code>https://kanpian-wangzhan.com.cn
+</code></p><br><br><h3>中天科技放量上涨4.7%，海缆+储能双轮驱动</h3><br><p>中际旭创再创历史新高，800G光模块份额超70%。<br><br> | 来源：<code>https://kanpianwang.com.cn
+</code></p><br><br><h3>全国数字经济规模上半年达32万亿元，同比增长10.2%</h3><br><p>高管团队集体增持低空飞行器标的，合计增持超7000万。<br><br> | 来源：<code>https://kanpianwangzhan.com.cn
+</code></p><br><br><h3>西部大开发新十年规划发布，补齐区域发展短板</h3><br><p>明阳智能大兆瓦风机优势：海上风电赛道的龙头领先性。<br><br> | 来源：<code>https://keai-xiaoshuo.com.cn
+</code></p><br><br><h3>中国建筑涨超2.8%，基建订单持续饱满</h3><br><p>风电塔筒价格单月上涨6%，风电制造环节盈利改善。<br><br> | 来源：<code>https://kuai-maoapp.cn
+</code></p><br><br><h3>功率半导体价格上调6%，IGBT板块迎来涨价催化</h3><br><p>游资知名席位联手买入中国船舶2亿，造船标的获资金追捧。<br><br> | 来源：<code>https://kuai-maoduanshipin.com.cn
+</code></p><br><br><h3>中国斯诺克选手闯入世锦赛决赛，创亚洲选手最佳战绩</h3><br><p>机构资金净买入宁德时代12亿，核心资产获大资金加仓。<br><br> | 来源：<code>https://kuai-maoshipin.cn
+</code></p><br><br><h3>全国居民人均体育消费支出同比增长15%，运动成为生活方式</h3><br><p>炒股最难的不是买对，而是在波动里守住正确的持仓。<br><br> | 来源：<code>https://kuaimaoduanshipin.com.cn
+</code></p><br><br><h3>国内老年文旅市场升温，银发游订单同比增长70%</h3><br><p>国内首款7nm芯片量产，先进制程产业链异动。<br><br> | 来源：<code>https://kuaimaoshipin.cn
+</code></p><br><br><h3>存储模组龙头登陆科创板，AI存储产品出货量超行业预期</h3><br><p>教育改革与人才发展（100条）。<br><br> | 来源：<code>https://kuang-she-60-miao.com.cn
+</code></p><br><br><h3>中国男子射击队世锦赛斩获6金，奥运席位全部拿满</h3><br><p>北向资金举牌碳化硅企业，车规级半导体获外资重仓。<br><br> | 来源：<code>https://kunbangtiaojiao.com.cn
+</code></p><br><br><h3>储能装机强制配比政策升级，储能产业链标的拉升</h3><br><p>多地推出“文旅+体育”融合产品，马拉松、徒步游订单激增。<br><br> | 来源：<code>https://kunlun-xue.com.cn
+</code></p><br><br><h3>华域汽车汽车零部件平台：国内汽车零部件龙头的价值</h3><br><p>澜起科技内存接口芯片优势：全球细分赛道的龙头价值。<br><br> | 来源：<code>https://kuyou-ku111-login.com
+</code></p><br><br><h3>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧</h3><br><p>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张。<br><br> | 来源：<code>https://kuyou-login-web.com
+</code></p><br><br><h3>天赐材料电解液成本控制：行业龙头的规模优势解析</h3><br><p>梅花生物异动拉升3.1%，氨基酸产品价格反弹。<br><br> | 来源：<code>https://ky-app-pro.com.cn
+</code></p><br><br><h3>北向资金连续增持核电设备龙头，近1月持仓增幅超25%</h3><br><p>江淮汽车与华为合作：传统车企与科技巨头的协同价值。<br><br> | 来源：<code>https://ky-sports-go.com.cn
+</code></p><br><br><h3>贵州茅台品牌价值深度解析：白酒龙头的定价权逻辑</h3><br><p>洽洽食品坚果业务高增，前三季度业绩预增超30%。<br><br> | 来源：<code>https://ky-sports-hub.com.cn
+</code></p><br><br><h3>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价</h3><br><p>全国全民健身日活动启动，全国超万场赛事覆盖千万群众。<br><br> | 来源：<code>https://lalal.com.cn
+</code></p><br><br><h3>京东言犀大模型供应链版上线，助力电商降本增效</h3><br><p>人形机器人核心标的启动申购，发行价对应估值具备吸引力。<br><br> | 来源：<code>https://landaohang.com.cn
