@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分06秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿</h3><br><p>AIGC内容监管细则出台，AI内容标的集体拉升。<br><br> | 来源：<code>www.asiaillustrator.com
+</code></p><br><br><h3>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级</h3><br><p>中际旭创再创阶段新高，趋势加速下的持仓策略。<br><br> | 来源：<code>www.ary-eye.com
+</code></p><br><br><h3>机构资金集中买入科大讯飞7亿，AI龙头获机构抱团</h3><br><p>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌。<br><br> | 来源：<code>www.dearain.cn
+</code></p><br><br><h3>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍</h3><br><p>全国野生东北豹种群数量突破100只，生物链完整性恢复。<br><br> | 来源：<code>www.boorman.cn
+</code></p><br><br><h3>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善</h3><br><p>福耀玻璃全球汽车玻璃布局：细分赛道全球龙头的壁垒。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>上半年全国新能源发电量同比增长35%，占全社会用电量比重超20%</h3><br><p>全国城市慢行系统建设提速，绿道总里程突破15万公里。<br><br> | 来源：<code>www.yuzt.cn
+</code></p><br><br><h3>张家界暑期游客量突破300万人次，山岳旅游热度攀升</h3><br><p>稀土价格政策收储后上涨12%，稀土永磁板块集体异动。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>天邦食品涨超4.1%，养殖业务减亏效果显著</h3><br><p>AI图像识别技术突破，缺陷检测准确率超99.5%。<br><br> | 来源：<code>www.6gt8.cn
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>美联储降息预期提前落地，黄金价格创历史新高。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>外资机构席位净买入中国交建5700万，基建龙头获外资加仓</h3><br><p>原油价格突破85美元/桶，油气开采板块盈利提升。<br><br> | 来源：<code>www.xinyucai.cn
+</code></p><br><br><h3>中国男子皮划艇队世锦赛夺冠，静水项目实现金牌零突破</h3><br><p>全国旅游厕所建设完成，所有景区实现第三卫生间全覆盖。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>中国神华高股息属性：能源龙头的长期配置价值分析</h3><br><p>谷爱凌复出参加世锦赛，斩获自由式滑雪U型场地金牌。<br><br> | 来源：<code>www.rlgps.cn
+</code></p><br><br><h3>AI应用落地加速：办公、安防、教育的商业化机会</h3><br><p>五粮液品牌与渠道优势：浓香型白酒龙头的护城河解析。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>阳光电源海外逆变器爆发，前三季度业绩预增110%</h3><br><p>中国保龄球队亚运会夺得金牌，小众项目实现历史性突破。<br><br> | 来源：<code>www.btnrl.com
+</code></p><br><br><h3>北方华创半导体设备订单爆发，单季业绩预增超80%</h3><br><p>半导体国产替代推进：制造、设备、材料的突破路径。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>苏州园林暑期接待人次破500万，江南古典文旅持续走红</h3><br><p>中新（新加坡）自贸协定升级，服务贸易开放度大幅提升。<br><br> | 来源：<code>www.zzwtest.com
+</code></p><br><br><h3>钠离子电池实现装车应用，钠电池产业链全线爆发</h3><br><p>外资持续流入浪潮信息，AI服务器龙头外资持仓占比突破3%。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>中远海控集运运价反弹，单季业绩预告环比大增</h3><br><p>宠物食品企业开启新股申购，海外自主品牌占比突破40%。<br><br> | 来源：<code>www.zzlxgg.com.cn
+</code></p><br><br><h3>铅价上涨7%，铅酸电池板块盈利边际改善</h3><br><p>央行下调再贷款利率，精准支持科技创新领域。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>证监会出台资本市场提质新政，鼓励上市公司加大分红比例</h3><br><p>全国碳捕集利用与封存项目年处理能力突破1500万吨。<br><br> | 来源：<code>www.geeksuper.cn
