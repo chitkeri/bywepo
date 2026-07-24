@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分51秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国中车全球轨交布局：一带一路下的海外订单增长逻辑</h3><br><p>中兴通讯沿趋势线上行，通信板块的轮动机会。<br><br> | 来源：<code>https://xin-pujing-yule.com.cn
+</code></p><br><br><h3>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划</h3><br><p>吉利汽车放量上涨5.6%，新能源车型占比突破50%。<br><br> | 来源：<code>https://xin-pujing-yulecheng.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研虚拟电厂标的，订单爆发式增长披露</h3><br><p>全国"无废城市"试点扩围至100个，固废资源化利用提速。<br><br> | 来源：<code>https://xin91shipin.cn
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>亿纬锂能储能订单爆发，前三季度业绩预增90%。<br><br> | 来源：<code>https://xin91shipin.com.cn
+</code></p><br><br><h3>国内文创产品市场规模破千亿，故宫文创年营收超20亿</h3><br><p>白卡纸价格连续上涨8%，白卡纸龙头盈利弹性释放。<br><br> | 来源：<code>https://xing-bake.com.cn
+</code></p><br><br><h3>全国博物馆暑期接待人次破2亿，研学游订单同比翻倍</h3><br><p>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓。<br><br> | 来源：<code>https://xing-daohang.cn
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>外资资管集中调研中药配方颗粒标的，医院端渗透率超预期。<br><br> | 来源：<code>https://xing-fubaodaohang.cn
+</code></p><br><br><h3>北汽蓝谷异动拉升5.3%，极狐品牌销量边际改善</h3><br><p>上半年全国汽车出口突破230万辆，连续3年位居全球第一。<br><br> | 来源：<code>https://xing-sheng-jiao.com.cn
+</code></p><br><br><h3>10年期国债收益率下行，保险板块配置压力边际缓解</h3><br><p>多氟多涨超5.2%，六氟磷酸锂价格触底反弹。<br><br> | 来源：<code>https://xingbachuanmei.com.cn
+</code></p><br><br><h3>游资顶级席位打板沃森生物9800万，疫苗标的获热炒</h3><br><p>降准资金定向支持绿色能源，光伏风电板块获流动性利好。<br><br> | 来源：<code>https://xingbakeguanwang.cn
+</code></p><br><br><h3>北向资金单日净流入120亿，核心资产获外资集中扫货</h3><br><p>“双减”成效显著，校外违规培训机构清零率超98%。<br><br> | 来源：<code>https://xingbakezaixianguankan.cn
+</code></p><br><br><h3>全球可再生能源投资首次超过化石能源，能源转型拐点到来</h3><br><p>存款利率下调后居民储蓄搬家，A股新增开户数环比大增。<br><br> | 来源：<code>https://xingbashequ.cn
+</code></p><br><br><h3>大北农种业业务放量，前三季度业绩预增超55%</h3><br><p>海康威视AI业务高增，单季净利润同比增45%。<br><br> | 来源：<code>https://xingdaohang.cn
+</code></p><br><br><h3>中国五子连珠队世界杯包揽全部金牌，优势项目无人能敌</h3><br><p>稀土价格政策调控收储，稀土永磁标的全线拉升。<br><br> | 来源：<code>https://xingfu-bao.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>宠物食品企业开启新股申购，海外自主品牌占比突破40%。<br><br> | 来源：<code>https://xingfu-baodaohang.cn
+</code></p><br><br><h3>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域</h3><br><p>酱油价格单月上涨5%，调味品龙头盈利弹性释放。<br><br> | 来源：<code>https://xingfu-shenghuo.cn
+</code></p><br><br><h3>AI手语翻译大模型上线，助力千万听障人士沟通无障碍</h3><br><p>万华化学MDI价格反弹，单季业绩预告超预期。<br><br> | 来源：<code>https://xingfubao.net.cn
+</code></p><br><br><h3>全国校园足球特色校破2万，青少年足球人才储备加厚</h3><br><p>1年期LPR下调降低企业短期融资成本，经营活力提升。<br><br> | 来源：<code>https://xingfubaoliulianshipin.cn
+</code></p><br><br><h3>国产科幻电影票房突破50亿元，《流浪地球3》刷新纪录</h3><br><p>比亚迪AH股同步走强，新能源整车板块领涨两市。<br><br> | 来源：<code>https://xingfubaoxiazai.cn
+</code></p><br><br><h3>国内大模型产业联盟成立，联合攻关核心技术短板</h3><br><p>F1中国大奖赛上海站落幕，周冠宇获本土最佳第四名创历史。<br><br> | 来源：<code>https://xingfudaohang.cn
