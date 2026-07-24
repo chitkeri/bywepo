@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分54秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国女子网球选手郑钦文闯入美网四强，世界排名升至第三</h3><br><p>澜起科技异动拉升4.3%，内存接口芯片份额提升。<br><br> | 来源：<code>https://aiyeapp.cn
+</code></p><br><br><h3>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%</h3><br><p>中国女子排球队奥运资格赛全胜，直通巴黎奥运会。<br><br> | 来源：<code>https://aiyeapp.net.cn
+</code></p><br><br><h3>存款利率市场化调整机制优化，银行负债端成本进一步压降</h3><br><p>云从科技人机协同大模型3.0发布，赋能人机交互场景。<br><br> | 来源：<code>https://aiyeguanfangrukou.net.cn
+</code></p><br><br><h3>恩捷股份异动拉升5.4%，锂电池隔膜份额持续提升</h3><br><p>粤高速A异动拉升2.6%，大湾区车流量高增。<br><br> | 来源：<code>https://aiyeguanwang.net.cn
+</code></p><br><br><h3>沪股通席位单日买入中国中冶5300万，冶金工程标的增持</h3><br><p>全球智能穿戴市场规模突破2000亿美元，消费电子回暖。<br><br> | 来源：<code>https://aiyeshipin.net.cn
+</code></p><br><br><h3>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值</h3><br><p>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复。<br><br> | 来源：<code>https://aiyeshipinguanwang.net.cn
+</code></p><br><br><h3>液态奶价格上涨3%，乳制品板块迎来涨价催化</h3><br><p>中印经贸合作回暖，双边贸易额同比增长15%。<br><br> | 来源：<code>https://aiyeshipinxiazai.net.cn
+</code></p><br><br><h3>美欧贸易谈判达成协议，解决钢铁铝关税争端</h3><br><p>璞泰来涨超5.0%，负极材料行业格局优化。<br><br> | 来源：<code>https://aiyewangzhan.net.cn
+</code></p><br><br><h3>公募基金集中调研电力现货交易标的，交易系统订单翻倍</h3><br><p>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功。<br><br> | 来源：<code>https://akeelahandthebee.com.cn
+</code></p><br><br><h3>牧原股份养殖成本控制：生猪养殖龙头的核心竞争力</h3><br><p>江铃汽车异动拉升4.2%，轻卡新能源化加速。<br><br> | 来源：<code>https://anzhailala.com.cn
+</code></p><br><br><h3>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序</h3><br><p>韦尔股份异动拉升5.1%，CIS芯片需求回暖。<br><br> | 来源：<code>https://aocai-2448442-net.com
+</code></p><br><br><h3>全国儿童疫苗接种率保持99%以上，传染病发病率降至历史最低</h3><br><p>出口退税政策优化，出口导向型标的拉升。<br><br> | 来源：<code>https://app-biwei-vip.com.cn
+</code></p><br><br><h3>上海建工涨超2.9%，上海城市更新订单爆发</h3><br><p>体育赛事与全民健身（100条）。<br><br> | 来源：<code>https://app-ml-tiyu.com.cn
+</code></p><br><br><h3>东部地区率先实现高质量发展，人均GDP突破12万元</h3><br><p>阿里通义千问3.0版本上线，代码生成能力超越国际同类产品。<br><br> | 来源：<code>https://ba-geheiliao.com.cn
+</code></p><br><br><h3>企业债券融资利率大幅下行，直接融资占比进一步提升</h3><br><p>全球无人机市场规模突破1500亿美元，行业应用爆发。<br><br> | 来源：<code>https://bafuli.com.cn
+</code></p><br><br><h3>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心</h3><br><p>中国中铁一带一路订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://bageheiliao.org.cn
+</code></p><br><br><h3>通用航空机场建设规划，通航运营板块集体上涨</h3><br><p>德业股份储能逆变器放量，前三季度业绩预增超100%。<br><br> | 来源：<code>https://baicaiba-bocai-bbs.com
+</code></p><br><br><h3>全国全民健身日活动覆盖超亿人次，群众体育热情高涨</h3><br><p>全球医疗健康支出突破10万亿美元，老龄化驱动需求增长。<br><br> | 来源：<code>https://baihubi.org.cn
+</code></p><br><br><h3>五粮液重回165元，中秋旺季备货提前启动</h3><br><p>特变电工新能源盈利高增，单季业绩预告超预期。<br><br> | 来源：<code>https://baihuziwei.com.cn
+</code></p><br><br><h3>哈尔滨暑期游热度反超冬季，冰雪大世界夏季版开园迎客</h3><br><p>建立自己的交易体系：没有规则的操作，最终只会被情绪带着走。<br><br> | 来源：<code>https://baisijkbaihu.com.cn
