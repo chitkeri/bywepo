@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分09秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>公募基金集中调研电力现货交易标的，交易系统订单翻倍</h3><br><p>房贷利率下调后二手房成交回暖，家居家电需求回升。<br><br> | 来源：<code>https://daohangyese.com.cn
+</code></p><br><br><h3>降准资金定向支持三农，农业板块迎来流动性利好</h3><br><p>QFII新进汽车芯片标的，MCU国产替代获海外机构看好。<br><br> | 来源：<code>https://daohangyinse.com.cn
+</code></p><br><br><h3>三一重工全球化布局：工程机械龙头的海外市场拓展</h3><br><p>国企改革三年行动收官，央企营收同比增长6.8%。<br><br> | 来源：<code>https://daoyiben.com.cn
+</code></p><br><br><h3>机构+北向合力买入新希望6700万，养殖标的获资金布局</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>https://dapianoumei.com.cn
+</code></p><br><br><h3>牧原股份养殖成本控制：生猪养殖龙头的核心竞争力</h3><br><p>国内主题乐园暑期营收同比增长75%，亲子游成核心主力。<br><br> | 来源：<code>https://dapigu-shipin.com.cn
+</code></p><br><br><h3>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解</h3><br><p>中国男子体操队世锦赛团体夺冠，重回世界巅峰。<br><br> | 来源：<code>https://dapigu.com.cn
+</code></p><br><br><h3>新能源汽车出口数据翻倍，整车出口标的集体异动</h3><br><p>韦尔股份CIS芯片布局：图像传感器行业的周期与成长。<br><br> | 来源：<code>https://dayanghei.com.cn
+</code></p><br><br><h3>百亿私募组团调研光模块企业，1.6T产品送样海外客户</h3><br><p>全国羽毛球锦标赛落幕，00后小将包揽三项冠军。<br><br> | 来源：<code>https://dianfeng-guoji.com.cn
+</code></p><br><br><h3>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露</h3><br><p>全球人工智能产业规模突破5万亿美元，中美占据主导地位。<br><br> | 来源：<code>https://dianying-zaixianguankanmianfei.com.cn
+</code></p><br><br><h3>国产动画剧集全网播放量突破300亿，传统文化元素成爆款密码</h3><br><p>晶澳科技涨超4.8%，光伏组件出口数据亮眼。<br><br> | 来源：<code>https://dianyingcang.com.cn
+</code></p><br><br><h3>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓</h3><br><p>长鑫存储DDR5产能释放，内存芯片标的集体上涨。<br><br> | 来源：<code>https://dingsheng-5262-web.com
+</code></p><br><br><h3>陕西历史博物馆暑期预约一票难求，单日接待量突破4万人次</h3><br><p>全国步行街改造升级完成，200条示范街夜间营收占比超70%。<br><br> | 来源：<code>https://diyiban-zhu.cn
+</code></p><br><br><h3>全球教育科技市场规模突破4000亿美元，线上教育持续普及</h3><br><p>明阳智能涨超4.8%，大兆瓦风机份额持续提升。<br><br> | 来源：<code>https://diyici-derenqi.com.cn
+</code></p><br><br><h3>金砖国家新开发银行新增贷款规模突破500亿美元</h3><br><p>智飞生物代理+自研双轮驱动：疫苗行业的稳健成长逻辑。<br><br> | 来源：<code>https://diyiciderenqi.com.cn
+</code></p><br><br><h3>国内大模型性能榜单更新，国产模型多项指标超越国际竞品</h3><br><p>降准释放资金超万亿，流动性宽松支撑A股估值抬升。<br><br> | 来源：<code>https://diyiciderenqidongman.com.cn
+</code></p><br><br><h3>基金公司集体到访人形电机龙头，力矩电机产能释放数据</h3><br><p>全国煤化工行业低碳改造完成，碳排放强度下降20%。<br><br> | 来源：<code>https://diyicirenqi.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功</h3><br><p>炒股最难的不是买对，而是在波动里守住正确的持仓。<br><br> | 来源：<code>https://diyifuli.cn
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>5年期LPR下调带动居民购房意愿回升，地产销售边际改善。<br><br> | 来源：<code>https://diyifuli.com.cn
+</code></p><br><br><h3>国内降准政策落地，大金融板块全线拉升</h3><br><p>知名私募大手笔增持储能电池标的，海外户储订单获资本布局。<br><br> | 来源：<code>https://diyifulidaohang.cn
+</code></p><br><br><h3>中国中冶冶金工程优势：新能源冶金赛道的领先地位</h3><br><p>机构专用席位净买入温氏股份7400万，养殖龙头获长线加仓。<br><br> | 来源：<code>https://diyixueshufulidaohangwang.cn
