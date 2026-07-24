@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>陕西煤业放量上涨3.1%，煤炭供需格局保持稳健</h3><br><p>政策性降息支持保障性住房建设，保障房产业链受益。<br><br> | 来源：<code>https://moguchengpinrenshipin.com.cn
+</code></p><br><br><h3>5年期LPR下调带动居民购房意愿回升，地产销售边际改善</h3><br><p>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励。<br><br> | 来源：<code>https://mogushequ.com.cn
+</code></p><br><br><h3>泸州老窖国窖批价上行，单季业绩预告超预期</h3><br><p>全球海洋经济规模突破3万亿美元，蓝色经济成新增长点。<br><br> | 来源：<code>https://mogushipinapp.com.cn
+</code></p><br><br><h3>通威股份全产业链成本控制：光伏硅料环节的盈利韧性</h3><br><p>实控人兜底式增持游戏出海龙头，员工响应参与超预期。<br><br> | 来源：<code>https://mogushipinwangzhan.com.cn
+</code></p><br><br><h3>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露</h3><br><p>超250家机构到访AI大模型企业，ToB付费转化率超预期。<br><br> | 来源：<code>https://mogushipinzaixianguankan.com.cn
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>基金公司集体到访人形电机龙头，力矩电机产能释放数据。<br><br> | 来源：<code>https://mogutvrukou.com.cn
+</code></p><br><br><h3>超170家机构到访PCB龙头，AI服务器板订单同比翻倍</h3><br><p>全国城市慢行系统建设提速，绿道总里程突破15万公里。<br><br> | 来源：<code>https://moguwang.com.cn
+</code></p><br><br><h3>全球机器人装机量突破500万台，工业自动化加速普及</h3><br><p>知名私募大手笔增持乳制品龙头，持仓占比达3.5%。<br><br> | 来源：<code>https://mu-jiaoshi.com.cn
+</code></p><br><br><h3>全国高血压患者管理人数突破1亿人，规范管理率达90%</h3><br><p>10年期国债收益率下行，保险板块配置压力边际缓解。<br><br> | 来源：<code>https://mugua-yingyuan.com.cn
+</code></p><br><br><h3>国电南瑞电力数字化：新型电力系统建设下的长期受益</h3><br><p>中国平安综合金融版图：保险龙头的转型进展与空间。<br><br> | 来源：<code>https://muguawanguanwang.com.cn
+</code></p><br><br><h3>知名私募组团调研MR产业链标的，新品备货数据曝光</h3><br><p>页岩气勘探开发政策，页岩气开采板块走强。<br><br> | 来源：<code>https://muguazhibo.com.cn
+</code></p><br><br><h3>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放</h3><br><p>中微公司刻蚀设备技术：半导体设备细分龙头的核心壁垒。<br><br> | 来源：<code>https://nai-paodongman.com.cn
+</code></p><br><br><h3>百亿私募组团调研碳化硅企业，车规级器件量产线投产</h3><br><p>国产综艺节目海外版权输出量同比增长60%。<br><br> | 来源：<code>https://naipaodongman.com.cn
+</code></p><br><br><h3>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放</h3><br><p>机构专用席位净买入智飞生物8300万，疫苗龙头获长线加仓。<br><br> | 来源：<code>https://naiqiudongman.com.cn
+</code></p><br><br><h3>国内政策性降息落地，宽信用进程加速推进</h3><br><p>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放。<br><br> | 来源：<code>https://naishui-dongman.com.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金单周净流入超300亿</h3><br><p>尾矿资源综合利用政策，尾矿回收板块走强。<br><br> | 来源：<code>https://naishuidonghua.com.cn
+</code></p><br><br><h3>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解</h3><br><p>许继电气特高压布局：特高压产业链核心标的的成长逻辑。<br><br> | 来源：<code>https://naishuidongman.com.cn
+</code></p><br><br><h3>东方财富涨超7.1%，基金代销业务环比改善</h3><br><p>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善。<br><br> | 来源：<code>https://naishuidongmanzaixian.com.cn
+</code></p><br><br><h3>风电塔筒价格单月上涨6%，风电制造环节盈利改善</h3><br><p>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升。<br><br> | 来源：<code>https://naishuileyuan.com.cn
+</code></p><br><br><h3>中国桥牌队世锦赛夺得冠军，高端智力运动跻身世界前列</h3><br><p>百度智能云大模型平台开放，百万开发者接入生态。<br><br> | 来源：<code>https://naishuimanhua.com.cn
