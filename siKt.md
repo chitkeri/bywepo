@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分12秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>需求侧响应政策落地，电力营销板块集体上涨</h3><br><p>保利发展央企地产优势：融资成本与资源获取的双重优势。<br><br> | 来源：<code>www.asiaillustrator.com
+</code></p><br><br><h3>多地推出文旅惠民卡，年卡销量破百万撬动百亿消费</h3><br><p>动力电池回收管理办法出台，锂电回收板块全线异动。<br><br> | 来源：<code>www.ary-eye.com
+</code></p><br><br><h3>中微公司刻蚀设备技术：半导体设备细分龙头的核心壁垒</h3><br><p>海螺水泥涨超3.7%，基建投资增速回暖带动需求。<br><br> | 来源：<code>www.dearain.cn
+</code></p><br><br><h3>制造业PMI连续6个月位于扩张区间，行业景气度持续回升</h3><br><p>新希望异动拉升3.9%，生猪出栏量持续高增。<br><br> | 来源：<code>www.boorman.cn
+</code></p><br><br><h3>天齐锂业涨超5.8%，锂矿自给率优势持续凸显</h3><br><p>长江经济带发展成效显著，生态优先绿色发展格局形成。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>新能源赛道集体反弹：动力电池、光伏、储能谁是领涨主线</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>www.yuzt.cn
+</code></p><br><br><h3>基金公司集体到访氢能龙头，燃料电池车推广进度超预期</h3><br><p>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>AI生成广告内容占比超70%，营销行业效率大幅提升</h3><br><p>纸价开启新一轮提价潮，造纸板块盈利迎来修复。<br><br> | 来源：<code>www.6gt8.cn
+</code></p><br><br><h3>大模型在气象灾害预警领域应用，预警覆盖率提升至98%</h3><br><p>存量房贷利率集中下调，居民消费能力有望边际改善。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>机构资金联手买入北京君正9500万，车载存储龙头获抱团</h3><br><p>招商银行零售银行优势：国内零售银行龙头的经营质量。<br><br> | 来源：<code>www.xinyucai.cn
+</code></p><br><br><h3>稀土价格政策收储后上涨12%，稀土永磁板块集体异动</h3><br><p>药明康德MACD金叉，技术指标共振带来布局机会。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>南京夫子庙暑期客流超2000万，秦淮夜游营收同比翻倍。<br><br> | 来源：<code>www.rlgps.cn
+</code></p><br><br><h3>纸价开启新一轮提价潮，造纸板块盈利迎来修复</h3><br><p>基金公司集体到访氢能龙头，燃料电池车推广进度超预期。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>车联网安全标准出台，车联网板块集体上涨</h3><br><p>全面降准0.5个百分点，银行信贷投放能力大幅提升。<br><br> | 来源：<code>www.btnrl.com
+</code></p><br><br><h3>外资机构席位净买入中国交建5700万，基建龙头获外资加仓</h3><br><p>甘肃建投涨超3.0%，一带一路西北基建项目推进。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>储能电池价格小幅上涨3%，储能产业链价格体系企稳</h3><br><p>中国男子沙滩排球队闯入亚运会决赛，创历史最佳成绩。<br><br> | 来源：<code>www.zzwtest.com
+</code></p><br><br><h3>中国游泳队世锦赛斩获5金，打破2项世界纪录领跑泳坛</h3><br><p>贵州茅台站稳1700元关口，白酒板块估值修复开启。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>智飞生物代理+自研双轮驱动：疫苗行业的稳健成长逻辑</h3><br><p>全国乡村旅游重点村暑期接待人次破1亿，民宿入住率超95%。<br><br> | 来源：<code>www.zzlxgg.com.cn
+</code></p><br><br><h3>外资机构集中调研短视频出海标的，海外用户规模破亿</h3><br><p>宝钢股份绿色低碳优势：钢铁行业碳中和下的领先地位。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>全国农村人居环境整治提升，生活垃圾无害化处理率达97%</h3><br><p>白酒批价连续上涨，高端白酒板块盈利弹性释放。<br><br> | 来源：<code>www.geeksuper.cn
