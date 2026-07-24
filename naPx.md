@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>中国中车异动拉升3.2%，动车组新车型交付加速。<br><br> | 来源：<code>https://luoli-she.com.cn
+</code></p><br><br><h3>私募基金仓位创年内新高，私募重仓标的上涨</h3><br><p>民宿行业规范发展政策，乡村旅游标的全线拉升。<br><br> | 来源：<code>https://luoliciyuan.com.cn
+</code></p><br><br><h3>中国通号涨超3.4%，高铁信号系统份额领先</h3><br><p>中国电建绿电运营：新能源电站的长期稳定现金流价值。<br><br> | 来源：<code>https://luolileyuan.com.cn
+</code></p><br><br><h3>5年期LPR下调15BP，地产链估值修复行情延续</h3><br><p>深圳马拉松开跑，3万跑者穿越滨海赛道展现城市活力。<br><br> | 来源：<code>https://luolishipin.com.cn
+</code></p><br><br><h3>逆向投资不是盲目抄底：在行业逻辑反转时布局，胜率才最高</h3><br><p>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期。<br><br> | 来源：<code>https://luolishipin.net.cn
+</code></p><br><br><h3>巴西经济复苏，二季度农业工业双增长</h3><br><p>知名私募举牌MR产业链标的，调研后直接大额扫货。<br><br> | 来源：<code>https://luoliwang.com.cn
+</code></p><br><br><h3>国内音乐节市场爆发，上半年演出场次同比增长150%</h3><br><p>儿童用药扶持政策，儿科医药标的全线拉升。<br><br> | 来源：<code>https://luonu-wangzhan.com
+</code></p><br><br><h3>储能装机强制配比政策升级，储能产业链标的拉升</h3><br><p>贵州茅台渠道改革进展：直营占比提升下的盈利弹性测算。<br><br> | 来源：<code>https://luotimeinu.com.cn
+</code></p><br><br><h3>中国神华煤炭量价齐升，前三季度业绩预增超15%</h3><br><p>金风科技风电装机超预期，前三季度业绩预增超40%。<br><br> | 来源：<code>https://luotiyishu.com.cn
+</code></p><br><br><h3>全球航空运输业完全复苏，客运量恢复至疫情前水平</h3><br><p>桂林山水暑期游热度回升，漓江游船日均发船超200艘。<br><br> | 来源：<code>https://luoyoushe.com.cn
+</code></p><br><br><h3>国际油价大幅上涨，油气开采板块全线拉升</h3><br><p>多地推出文旅惠民卡，年卡销量破百万撬动百亿消费。<br><br> | 来源：<code>https://m-jinmantiantang.com.cn
+</code></p><br><br><h3>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%</h3><br><p>铜版纸价格单月上涨7%，造纸细分板块迎来行情。<br><br> | 来源：<code>https://m-mitaoshipin.com.cn
+</code></p><br><br><h3>中国女子赛艇队世锦赛斩获2金，奥运备战状态火热</h3><br><p>国内民宿市场规模破万亿，精品民宿均价同比上涨20%。<br><br> | 来源：<code>https://m-mogushipin.com.cn
+</code></p><br><br><h3>水产品价格集体上涨，水产养殖板块迎来涨价催化</h3><br><p>全国钢铁行业超低排放改造完成，减排效果达国际先进水平。<br><br> | 来源：<code>https://madou-chuanmei.com.cn
+</code></p><br><br><h3>LPR非对称下调，银行净息差压力边际缓解</h3><br><p>明阳智能大兆瓦风机优势：海上风电赛道的龙头领先性。<br><br> | 来源：<code>https://madou-cm-chuanmei-zaixian-gaoqing.com.cn
+</code></p><br><br><h3>哈尔滨暑期游热度反超冬季，冰雪大世界夏季版开园迎客</h3><br><p>万科A异动拉升3.6%，核心城市楼盘去化率改善。<br><br> | 来源：<code>https://madou-shipin.com.cn
+</code></p><br><br><h3>全国家政服务业营收上半年同比增长16%，民生消费升温</h3><br><p>中国男子帆船队亚运会夺冠，水上项目实现新突破。<br><br> | 来源：<code>https://madouchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>农村物流体系建设规划，乡村物流标的全线异动</h3><br><p>保险资管扎堆调研养老产业标的，养老社区入住率数据披露。<br><br> | 来源：<code>https://madouseman.com.cn
+</code></p><br><br><h3>暑期托管服务全面推行，免费提供兴趣课程和作业辅导</h3><br><p>充电桩下乡政策落地，充电桩产业链标的走强。<br><br> | 来源：<code>https://madoushipin.cn
+</code></p><br><br><h3>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位创造境外参赛最佳</h3><br><p>固德威放量上涨7.2%，户用储能业务爆发式增长。<br><br> | 来源：<code>https://majiang-diannao-ban-zaixian-wan.com.cn
