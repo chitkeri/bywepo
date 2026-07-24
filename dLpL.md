@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国门球队世锦赛夺得冠军，中老年运动项目国际领先</h3><br><p>中兴通讯通信技术积累：6G时代的核心竞争力展望。<br><br> | 来源：<code>https://17cyiqicao.com.cn
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>https://17cyiqicaoguoguankanwanzhengban.com.cn
+</code></p><br><br><h3>超170家机构到访PCB龙头，AI服务器板订单同比翻倍</h3><br><p>全国危险废物处置能力突破2亿吨/年，安全处置率100%。<br><br> | 来源：<code>https://17cyiqicaorukou.com.cn
+</code></p><br><br><h3>全国电解铝行业全部实现超低排放，能耗水平全球领先</h3><br><p>白酒批价连续上涨，高端白酒板块盈利弹性释放。<br><br> | 来源：<code>https://17cyiqicaozaixianguankan.com.cn
+</code></p><br><br><h3>中国举重队世锦赛打破12项世界纪录，优势项目持续领先</h3><br><p>保利发展央企地产优势：融资成本与资源获取的双重优势。<br><br> | 来源：<code>https://17cyiqizaixianguankan.com.cn
+</code></p><br><br><h3>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑</h3><br><p>国内大模型评测标准发布，统一行业能力评估体系。<br><br> | 来源：<code>https://17qicaoshipin.com.cn
+</code></p><br><br><h3>中际旭创800G光模块放量，前三季度业绩预增130%</h3><br><p>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域。<br><br> | 来源：<code>https://17yiqicao.com.cn
+</code></p><br><br><h3>三一重工放量上涨，工程机械行业景气度边际改善</h3><br><p>央行下调MLF利率10个基点，引导市场利率下行。<br><br> | 来源：<code>https://18-wangzhan.com.cn
+</code></p><br><br><h3>阳光电源放量上涨6.5%，海外逆变器订单爆发</h3><br><p>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径。<br><br> | 来源：<code>https://1996-zhicheng-guoji.com
+</code></p><br><br><h3>北向资金大额扫货天合光能7100万，光伏龙头获外资流入</h3><br><p>非洲自贸区正式启动运营，覆盖13亿人口形成统一大市场。<br><br> | 来源：<code>https://2026worldcup-guanwang-vip.com
+</code></p><br><br><h3>包装纸价格上涨5%，包装板块成本端压力传导顺畅</h3><br><p>存款利率下调推动理财收益率下行，权益基金发行回暖。<br><br> | 来源：<code>https://2121-feifan-entry.com
+</code></p><br><br><h3>工业母机龙头登陆北交所，五轴机床市占率国内第一</h3><br><p>上海建工涨超2.6%，长三角基建订单回暖。<br><br> | 来源：<code>https://2121-feifan-official.com
+</code></p><br><br><h3>宇通客车海外出口翻倍，前三季度业绩预增超50%</h3><br><p>中国中铁一带一路布局：海外基建订单的长期增长逻辑。<br><br> | 来源：<code>https://2pg-login-reg.com
+</code></p><br><br><h3>贵州暑期游订单破4000万，“村超”带动全县文旅收入翻倍</h3><br><p>全国江豚种群数量突破2000头，长江微笑天使重现。<br><br> | 来源：<code>https://3dshipin.com.cn
+</code></p><br><br><h3>降准释放长期资金支持新能源，绿电板块迎来定向利好</h3><br><p>全面降准0.5个百分点，银行信贷投放能力大幅提升。<br><br> | 来源：<code>https://432-yinghuang-app.com
+</code></p><br><br><h3>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大</h3><br><p>河北建工涨超2.7%，雄安新区基建订单饱满。<br><br> | 来源：<code>https://4688tv.com.cn
+</code></p><br><br><h3>东方盛虹EVA树脂优势：光伏胶膜原料龙头的景气受益</h3><br><p>机构资金集中买入科大讯飞7亿，AI龙头获机构抱团。<br><br> | 来源：<code>https://51-anwang.com.cn
+</code></p><br><br><h3>北向资金大额扫货大金重工5100万，塔筒龙头获外资流入</h3><br><p>粤高速A异动拉升2.6%，大湾区车流量高增。<br><br> | 来源：<code>https://512vip-kaiyuan-official.com
+</code></p><br><br><h3>中际旭创再创历史新高，800G光模块份额超70%</h3><br><p>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善。<br><br> | 来源：<code>https://51chi-guawang.com.cn
+</code></p><br><br><h3>多地推出城市更新专项政策，年内撬动投资超万亿元</h3><br><p>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓。<br><br> | 来源：<code>https://51chiguayuming.com.cn
