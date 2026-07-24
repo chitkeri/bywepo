@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国产大模型日活用户破2亿，覆盖办公、教育、医疗全场景</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>https://hq-leisu-sports.com.cn
+</code></p><br><br><h3>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位创造境外参赛最佳</h3><br><p>全国塑料吸管全面替代完成，可降解产品覆盖所有餐饮场景。<br><br> | 来源：<code>https://hq-pingbo-sports.com.cn
+</code></p><br><br><h3>亚星客车放量上涨3.9%，新能源客车盈利改善</h3><br><p>暑期档电影票房突破200亿元，国产主旋律影片领跑市场。<br><br> | 来源：<code>https://hq-qiusu-sports.com.cn
+</code></p><br><br><h3>酸奶产品价格上调4%，乳业细分板块盈利提升</h3><br><p>吉林高速异动拉升1.7%，区域路网业务逐步复苏。<br><br> | 来源：<code>https://hq-shaba-tiyu.com.cn
+</code></p><br><br><h3>全国氢能产业示范城市群落地，燃料电池汽车推广超12万辆</h3><br><p>西班牙经济增速达2.8%，南欧经济表现亮眼。<br><br> | 来源：<code>https://hq-xk-yule.com.cn
+</code></p><br><br><h3>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%</h3><br><p>宝钢股份板材盈利修复，前三季度业绩预增超30%。<br><br> | 来源：<code>https://hth-official-vip.com.cn
+</code></p><br><br><h3>双汇发展肉制品龙头优势：屠宰+肉制品的协同价值</h3><br><p>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才。<br><br> | 来源：<code>https://http91com.cn
+</code></p><br><br><h3>民宿行业规范发展政策，乡村旅游标的全线拉升</h3><br><p>中国毽球队世界杯包揽全部冠军，民间运动走向世界舞台。<br><br> | 来源：<code>https://https17ccom.com.cn
+</code></p><br><br><h3>鸭肉价格上涨12%，水禽养殖板块迎来行情</h3><br><p>机器人赛道持续升温：核心零部件、整机制造的投资机会。<br><br> | 来源：<code>https://httpswww17ccom.com.cn
+</code></p><br><br><h3>头部机构组团到访医美耗材龙头，新品获批进度超预期</h3><br><p>天际股份放量上涨4.3%，锂电材料业务盈利修复。<br><br> | 来源：<code>https://httpswww91com.cn
+</code></p><br><br><h3>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露</h3><br><p>降准资金定向支持三农，农业板块迎来流动性利好。<br><br> | 来源：<code>https://httpwww17c.com.cn
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>蔚来汽车换电模式优势：高端新能源车企的差异化壁垒。<br><br> | 来源：<code>https://httpwww17ccom.com.cn
+</code></p><br><br><h3>上合组织峰会召开，新增3个成员国组织规模进一步扩大</h3><br><p>全国城市公共交通新能源化率达100%，零排放出行普及。<br><br> | 来源：<code>https://huahualove.org.cn
+</code></p><br><br><h3>QFII集中调研宠物食品龙头，海外市场渗透率数据公开</h3><br><p>券商研究所扎堆调研智能电网标的，特高压设备中标数据。<br><br> | 来源：<code>https://huan-qi-yi-zu.com.cn
+</code></p><br><br><h3>全国连锁品牌门店数量上半年同比增长12%，线下消费复苏</h3><br><p>许继电气特高压布局：特高压产业链核心标的的成长逻辑。<br><br> | 来源：<code>https://huang-jiujiu.com.cn
+</code></p><br><br><h3>定向降息支持制造业高端化，工业母机板块获定向利好</h3><br><p>全国公积金贷款政策优化，支持居民合理住房需求。<br><br> | 来源：<code>https://huang-mantiantang.com.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>生猪收储政策启动，养殖板块迎来反弹催化。<br><br> | 来源：<code>https://huang-wed.cn
+</code></p><br><br><h3>厄尔尼诺现象加剧，农业抗旱标的全线走强</h3><br><p>国内音乐节市场爆发，上半年演出场次同比增长150%。<br><br> | 来源：<code>https://huang-you.com.cn
+</code></p><br><br><h3>进口博览会政策红利，进口贸易板块全线走强</h3><br><p>长城国家文化公园建设完工，沿线游览步道贯通超万公里。<br><br> | 来源：<code>https://huang-youdaquan.com.cn
+</code></p><br><br><h3>全国城市篮球联赛举办，覆盖百城参赛队伍破万支</h3><br><p>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张。<br><br> | 来源：<code>https://huanggua-shipin-app.com.cn
