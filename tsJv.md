@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>通威股份渔光互补模式：农业+新能源的协同发展路径。<br><br> | 来源：<code>https://zh-chengren-yingyuan.com.cn
+</code></p><br><br><h3>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增</h3><br><p>国内降准政策落地，大金融板块全线拉升。<br><br> | 来源：<code>https://zh-chengrenmanhua.com.cn
+</code></p><br><br><h3>实控人溢价15%增持碳纤维企业，传递长期发展信心</h3><br><p>中国橄榄球队首次晋级亚运会四强，项目普及度快速提升。<br><br> | 来源：<code>https://zh-dapigu.com.cn
+</code></p><br><br><h3>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓</h3><br><p>全国氢能产业示范城市群落地，燃料电池汽车推广超12万辆。<br><br> | 来源：<code>https://zh-diyici.com.cn
+</code></p><br><br><h3>平高电气放量上涨4.0%，特高压开关份额提升</h3><br><p>三安光电化合物半导体布局：LED+碳化硅的长期空间。<br><br> | 来源：<code>https://zh-fancha.com.cn
+</code></p><br><br><h3>北向资金大幅增持比亚迪，AH股同步获外资加仓</h3><br><p>全国老年大学体育课程覆盖超千万老人，健康老龄化推进。<br><br> | 来源：<code>https://zh-fanhao.com.cn
+</code></p><br><br><h3>深股通席位单日买入圣邦股份7500万，模拟芯片标的增持</h3><br><p>海大集团饲料技术优势：水产饲料龙头的研发壁垒。<br><br> | 来源：<code>https://zh-gaypian.com.cn
+</code></p><br><br><h3>上汽集团海外市场布局：传统车企出口的长期增长逻辑</h3><br><p>人民币汇率阶段性贬值，出口导向型标的异动。<br><br> | 来源：<code>https://zh-guochan-zaixian-guankan.com.cn
+</code></p><br><br><h3>北京国际铁人三项赛举办，吸引全球千名选手参赛</h3><br><p>挪威经济稳步增长，油气和新能源产业协同发展。<br><br> | 来源：<code>https://zh-h-manhua.com.cn
+</code></p><br><br><h3>进口博览会政策红利，进口贸易板块全线走强</h3><br><p>涪陵榨菜异动拉升3.8%，产品提价传导顺利。<br><br> | 来源：<code>https://zh-haijiaoshequ.com.cn
+</code></p><br><br><h3>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录</h3><br><p>北方稀土异动拉升5.4%，稀土产品价格反弹。<br><br> | 来源：<code>https://zh-jianqing.com.cn
+</code></p><br><br><h3>北向资金连续加仓通威股份，光伏龙头获外资长线布局</h3><br><p>房贷利率动态调整机制优化，重点城市房贷利率进一步下行。<br><br> | 来源：<code>https://zh-jiese.com.cn
+</code></p><br><br><h3>特变电工新能源盈利高增，单季业绩预告超预期</h3><br><p>AI翻译工具支持百种语言实时互译，准确率超专业译员。<br><br> | 来源：<code>https://zh-jin-man-tiantang.com.cn
+</code></p><br><br><h3>伊利股份产品矩阵：全品类乳制品的市场覆盖优势</h3><br><p>社保基金新进锂电回收龙头，布局循环经济高景气赛道。<br><br> | 来源：<code>https://zh-jinmantiantang.com.cn
+</code></p><br><br><h3>美联储降息后全球流动性宽松，成长板块估值抬升</h3><br><p>全国汽车拉力赛超20站，赛车运动爱好者规模破百万。<br><br> | 来源：<code>https://zh-jm-comic.com.cn
+</code></p><br><br><h3>智能制造政策升级，机器人自动化板块集体上涨</h3><br><p>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露。<br><br> | 来源：<code>https://zh-jm-tiantang.com.cn
+</code></p><br><br><h3>存储模组龙头登陆科创板，AI存储产品出货量超行业预期</h3><br><p>央行加大逆回购操作并下调利率，短期流动性持续充裕。<br><br> | 来源：<code>https://zh-jmcomic.com.cn
+</code></p><br><br><h3>上汽集团海外市场布局：传统车企出口的长期增长逻辑</h3><br><p>全国城市黑臭水体治理完成率100%，居民亲水空间增加。<br><br> | 来源：<code>https://zh-jmtt.com.cn
+</code></p><br><br><h3>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加</h3><br><p>沙漠光伏基地建设规划，大基地光伏标的全线异动。<br><br> | 来源：<code>https://zh-kan-pian-wangzhan.com.cn
+</code></p><br><br><h3>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争</h3><br><p>海南高速异动拉升2.0%，海南旅游带动车流量回升。<br><br> | 来源：<code>https://zh-koujiao.com.cn
