@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全球储能市场规模突破500GWh，新型电力系统建设提速</h3><br><p>招商公路涨超2.4%，公路运营龙头价值凸显。<br><br> | 来源：<code>https://new-fb-sports.com.cn
+</code></p><br><br><h3>比亚迪Q3销量破百万，业绩预告同比翻倍</h3><br><p>存储芯片价格连续上涨12%，存储板块迎来趋势性行情。<br><br> | 来源：<code>https://new-feifansports.com.cn
+</code></p><br><br><h3>郑钦文闯入温网女单决赛，创中国网球选手大满贯单打最佳战绩</h3><br><p>国产航母新进展，军工船舶板块集体异动。<br><br> | 来源：<code>https://new-fulidaohang.com.cn
+</code></p><br><br><h3>新疆暑期游客量突破5000万人次，西部文旅市场爆发</h3><br><p>国产动画电影票房上半年突破80亿元，国漫IP影响力扩大。<br><br> | 来源：<code>https://new-fuliji.com.cn
+</code></p><br><br><h3>万科A核心城市去化超预期，单季业绩预告环比改善</h3><br><p>东方电缆海缆订单爆发，前三季度业绩预增超70%。<br><br> | 来源：<code>https://new-haijiaoshequ.cn
+</code></p><br><br><h3>政策性银行加大降息力度，基建项目融资成本大幅下降</h3><br><p>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期。<br><br> | 来源：<code>https://new-hanxiucao.cn
+</code></p><br><br><h3>拓普集团护城河分析：汽车零部件平台型企业的长期价值</h3><br><p>高管团队集体增持智慧交通标的，合计增持金额超1.2亿。<br><br> | 来源：<code>https://new-hongtao.com.cn
+</code></p><br><br><h3>中国毽球队世界杯包揽全部冠军，民间运动走向世界舞台</h3><br><p>公募基金集中调研IDC龙头，AI算力上架率创历史新高。<br><br> | 来源：<code>https://new-hongtaoyingshi.com.cn
+</code></p><br><br><h3>实控人溢价20%增持氢能龙头，传递公司价值被低估信号</h3><br><p>新希望全产业链布局：从饲料到养殖的协同优势解析。<br><br> | 来源：<code>https://new-huangguashipin.com.cn
+</code></p><br><br><h3>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善</h3><br><p>超200家机构到访数据要素龙头，数据确权商业模式落地。<br><br> | 来源：<code>https://new-hyou.com.cn
+</code></p><br><br><h3>知名私募调研卫星互联网标的，低轨卫星组网计划披露</h3><br><p>吉利汽车新能源转型路径：传统车企电动化的成功案例。<br><br> | 来源：<code>https://new-jinmantiantang.com.cn
+</code></p><br><br><h3>北向资金连续加仓隆基绿能，光伏龙头获外资长线布局</h3><br><p>宇通客车放量上涨3.8%，海外客车出口数据亮眼。<br><br> | 来源：<code>https://new-jisutiyu.com.cn
+</code></p><br><br><h3>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口</h3><br><p>华域汽车汽车零部件平台：国内汽车零部件龙头的价值。<br><br> | 来源：<code>https://new-jiujiujiu.com.cn
+</code></p><br><br><h3>海外资管组团调研光伏逆变器标的，海外市占率突破30%</h3><br><p>上半年全国社会物流总额同比增长5.6%，物流运行效率提升。<br><br> | 来源：<code>https://new-jiujiure.com.cn
+</code></p><br><br><h3>天顺风能异动拉升4.6%，风电塔架订单高增</h3><br><p>湖南投资涨超2.1%，长沙路桥业务持续向好。<br><br> | 来源：<code>https://new-jiujiushipin.com.cn
+</code></p><br><br><h3>高管团队集体增持短视频出海标的，合计增持超9000万</h3><br><p>社保基金现身半导体材料龙头，国产替代率突破70%。<br><br> | 来源：<code>https://new-jiujiuyingshi.com.cn
+</code></p><br><br><h3>铜版纸价格单月上涨7%，造纸细分板块迎来行情</h3><br><p>美的集团全球化运营：家电龙头的海外市场拓展逻辑。<br><br> | 来源：<code>https://new-jiujiuyingyuan.com.cn
+</code></p><br><br><h3>国内降息政策出台，地产链标的集体上涨</h3><br><p>全国钢铁行业超低排放改造完成，减排效果达国际先进水平。<br><br> | 来源：<code>https://new-lala.com.cn
+</code></p><br><br><h3>中国中车异动拉升3.2%，动车组新车型交付加速</h3><br><p>万科A存量资产运营：商业地产+物流地产的第二曲线。<br><br> | 来源：<code>https://new-lebeijing.com.cn
+</code></p><br><br><h3>一带一路订单释放：中字头基建的估值重塑空间解析</h3><br><p>紫金矿业创阶段新高3.2%，铜金产量持续超预期。<br><br> | 来源：<code>https://new-ledongsports.com.cn
