@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分13秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北方稀土异动拉升5.4%，稀土产品价格反弹</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>https://go-jisu-sports.com.cn
+</code></p><br><br><h3>东方财富基金代销回暖，单季净利润同比增60%</h3><br><p>网络安全政策升级，网安板块集体上涨。<br><br> | 来源：<code>https://go-kaiyun-hub.com.cn
+</code></p><br><br><h3>QFII集中调研休闲食品龙头，线下渠道复购率数据公开</h3><br><p>云南建投放量上涨3.4%，南亚基建订单落地加速。<br><br> | 来源：<code>https://go-mitaoshipin.com.cn
+</code></p><br><br><h3>圣邦股份放量上涨4.6%，模拟芯片国产替代加速</h3><br><p>实控人溢价25%增持电力现货交易标的，传递价值低估信号。<br><br> | 来源：<code>https://go-mogushipin.com.cn
+</code></p><br><br><h3>养老金新进创新药龙头，布局创新管线长期成长逻辑</h3><br><p>中国女子排球队奥运夺冠，时隔12年再度站上最高领奖台。<br><br> | 来源：<code>https://gongce-by-zhu-xiang-bi-qu-ge-zuixin-zhangjie.com.cn
+</code></p><br><br><h3>央行加大公开市场操作力度，资金面维持平稳宽松</h3><br><p>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级。<br><br> | 来源：<code>https://goutouluoli.com.cn
+</code></p><br><br><h3>新疆暑期游订单破5000万，独库公路日均通车量超2万辆</h3><br><p>中通客车异动拉升4.1%，海外市场拓展加速。<br><br> | 来源：<code>https://goutouluolishipin.com.cn
+</code></p><br><br><h3>知名私募大手笔增持储能电池标的，海外户储订单获资本布局</h3><br><p>存量房贷利率批量下调，银行板块短期冲击可控。<br><br> | 来源：<code>https://gpian.net.cn
+</code></p><br><br><h3>洛阳推出“汉服游”配套服务，全城汉服租赁店超千家</h3><br><p>全国珠江流域生态补水工程启动，流域生态流量保障达标。<br><br> | 来源：<code>https://guess-worldcup-win.com
+</code></p><br><br><h3>林业碳汇交易政策，林业运营标的全线异动</h3><br><p>上半年全国文化产业营收同比增长14%，文旅融合加速。<br><br> | 来源：<code>https://guiruhougong.com.cn
+</code></p><br><br><h3>腾讯混元大模型企业服务升级，助力政务、金融行业数字化</h3><br><p>亨通光电海洋能源布局：光通信龙头的第二成长曲线。<br><br> | 来源：<code>https://guo-mo-bai-lu.com.cn
+</code></p><br><br><h3>镍价单月上涨11%，不锈钢板块迎来涨价催化</h3><br><p>中国中铁一带一路订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://guochan-chengren-dianying.com.cn
+</code></p><br><br><h3>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域</h3><br><p>思源电气涨超4.5%，电网设备出口数据亮眼。<br><br> | 来源：<code>https://guochan-chuanmei.com.cn
+</code></p><br><br><h3>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨</h3><br><p>中国赛艇队奥运会夺得2金，水上项目实现历史性跨越。<br><br> | 来源：<code>https://guochan-jingpin-shipin.com.cn
+</code></p><br><br><h3>游资顶级席位打板北方华创2.1亿，半导体设备标的获热炒</h3><br><p>6G技术研发加速：通信设备、射频器件的布局窗口。<br><br> | 来源：<code>https://guochan-shipin.com.cn
+</code></p><br><br><h3>东北振兴政策升级，东北本地股板块走强</h3><br><p>国产现实题材电影票房占比超60%，贴近生活引发全民共鸣。<br><br> | 来源：<code>https://guochan-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>汽车出口数据亮眼：自主车企、零部件的业绩增量分析。<br><br> | 来源：<code>https://guochan-yiqu.com.cn
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%。<br><br> | 来源：<code>https://guochan-yiquerqu.com.cn
+</code></p><br><br><h3>美联储开启降息周期，人民币汇率迎来趋势性升值</h3><br><p>全国无偿献血人次突破2000万，临床用血全部来自自愿捐献。<br><br> | 来源：<code>https://guochan-zaixian-guankan.com.cn
+</code></p><br><br><h3>北方稀土行业地位：稀土全产业链龙头的政策红利</h3><br><p>全国城市轨道交通全部实现电气化，绿色出行比例超70%。<br><br> | 来源：<code>https://guochan-zaixian.com.cn
