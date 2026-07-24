@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全球智能穿戴市场规模突破2000亿美元，消费电子回暖</h3><br><p>养老服务体系建设政策，养老产业标的全线走强。<br><br> | 来源：<code>https://white-tiger.com.cn
+</code></p><br><br><h3>蚝油产品价格上调3%，调味品全产业链盈利优化</h3><br><p>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放。<br><br> | 来源：<code>https://worias.cn
+</code></p><br><br><h3>1年期MLF利率下调带动全市场利率下行，债券牛市延续</h3><br><p>东方财富互联网券商优势：流量变现的长期成长空间。<br><br> | 来源：<code>https://worldcup-bifen-odds.com
+</code></p><br><br><h3>科大讯飞教育赛道优势：AI+教育的商业化落地领先性</h3><br><p>高管团队集体增持宠物食品龙头，合计增持超6500万。<br><br> | 来源：<code>https://worldcup-caishengfu-web.com
+</code></p><br><br><h3>实控人溢价20%增持氢能龙头，传递公司价值被低估信号</h3><br><p>文化产业扶持政策，文化传媒板块全线异动。<br><br> | 来源：<code>https://worldcup-jingcai-entry.com
+</code></p><br><br><h3>海天味业涨超3.5%，调味品行业需求复苏</h3><br><p>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期。<br><br> | 来源：<code>https://worldcup-jingcai-event.com
+</code></p><br><br><h3>知名私募组团调研MR产业链标的，新品备货数据曝光</h3><br><p>全国体育旅游精品线路超千条，带动沿线经济发展。<br><br> | 来源：<code>https://worldcup-jingcai-platform.com
+</code></p><br><br><h3>华为Mate70销量破千万，消费电子产业链全线异动</h3><br><p>10年期国债收益率下行至历史低位，高股息资产配置价值凸显。<br><br> | 来源：<code>https://worldcup-peifulv-top.com
+</code></p><br><br><h3>西藏暑期游客量突破200万人次，高原旅游热度创新高</h3><br><p>粤港澳大湾区一体化发展提速，跨境要素流动更加便捷。<br><br> | 来源：<code>https://worldcup-qunamai-web.com
+</code></p><br><br><h3>北向资金连续5日加仓贵州茅台，持仓占比创历史新高</h3><br><p>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域。<br><br> | 来源：<code>https://worldcup2026-guanwang-web.com
+</code></p><br><br><h3>游资顶级席位联手买入天齐锂业3亿，锂矿龙头获资金追捧</h3><br><p>休闲食品开启涨价潮，食品加工板块盈利弹性释放。<br><br> | 来源：<code>https://worldcup2026-official-cn.com
+</code></p><br><br><h3>外资持续买入科大讯飞，AI龙头获外资持仓占比突破3%</h3><br><p>重庆马拉松开跑，3万跑者体验山城赛道赛事热度创新高。<br><br> | 来源：<code>https://wu-liaodonghua.com.cn
+</code></p><br><br><h3>首套房贷款利率动态调整，核心城市刚需购房成本创新低</h3><br><p>科大讯飞AI业务盈利兑现，单季净利润同比增120%。<br><br> | 来源：<code>https://wu-se.com.cn
+</code></p><br><br><h3>社保基金新进重仓股，社保持仓标的集体异动</h3><br><p>中国建筑涨超2.8%，基建订单持续饱满。<br><br> | 来源：<code>https://wudaohang.com.cn
+</code></p><br><br><h3>全国非遗工坊超5000家，带动百万群众就业增收</h3><br><p>紫金矿业成本优势：全球铜金龙头的低成本矿产资源储备。<br><br> | 来源：<code>https://wufa-jujue-de-ta-hanju.com.cn
+</code></p><br><br><h3>网络视听内容监管优化，长视频平台标的拉升</h3><br><p>明阳智能大兆瓦风机放量，单季业绩预告超预期。<br><br> | 来源：<code>https://wukongsaichang.com.cn
+</code></p><br><br><h3>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩</h3><br><p>北汽蓝谷异动拉升5.3%，极狐品牌销量边际改善。<br><br> | 来源：<code>https://wumaliuchu.net.cn
+</code></p><br><br><h3>机构席位大额买入洋河股份6900万，白酒龙头获长线布局</h3><br><p>保险资管举牌绿电运营标的，长期配置价值获机构认可。<br><br> | 来源：<code>https://wumantiantang.com.cn
+</code></p><br><br><h3>医美行业合规化政策，头部医美标的拉升</h3><br><p>伊利股份乳制品龙头优势：国内乳业龙头的品牌与渠道。<br><br> | 来源：<code>https://wumariben.com.cn
+</code></p><br><br><h3>亿纬锂能放量上涨6.4%，储能电池出货量翻倍</h3><br><p>国际金价创历史新高，黄金珠宝标的集体上涨。<br><br> | 来源：<code>https://wumazhongzi.net.cn
