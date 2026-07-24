@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分01秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中新（新加坡）自贸协定升级，服务贸易开放度大幅提升</h3><br><p>磷肥价格单月上涨8%，磷化工龙头盈利改善。<br><br> | 来源：<code>https://new-jiujiujiu.com.cn
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>全国城市慢行系统建设提速，绿道总里程突破15万公里。<br><br> | 来源：<code>https://new-jiujiure.com.cn
+</code></p><br><br><h3>6G技术研发加速：通信设备、射频器件的布局窗口</h3><br><p>中国交建港口航道优势：全球港口建设龙头的核心壁垒。<br><br> | 来源：<code>https://new-jiujiushipin.com.cn
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿。<br><br> | 来源：<code>https://new-jiujiuyingshi.com.cn
+</code></p><br><br><h3>中国皮划艇队世锦赛斩获3金，静水项目优势持续扩大</h3><br><p>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复。<br><br> | 来源：<code>https://new-jiujiuyingyuan.com.cn
+</code></p><br><br><h3>全国广场舞大赛总决赛举办，超百万大妈参与线上线下赛事</h3><br><p>AI智能写作工具普及，内容创作者产出效率提升2倍。<br><br> | 来源：<code>https://new-lala.com.cn
+</code></p><br><br><h3>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%</h3><br><p>葛洲坝水电工程技术：全球水电建设龙头的技术积累。<br><br> | 来源：<code>https://new-lebeijing.com.cn
+</code></p><br><br><h3>美联储降息预期提前落地，黄金价格创历史新高</h3><br><p>AI智能写作工具普及，内容创作者产出效率提升2倍。<br><br> | 来源：<code>https://new-ledongsports.com.cn
+</code></p><br><br><h3>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心</h3><br><p>大北农种业布局：转基因商业化下的种业龙头成长逻辑。<br><br> | 来源：<code>https://new-leisi.com.cn
+</code></p><br><br><h3>地产链政策宽松预期：房企、家居、建材的轮动机会梳理</h3><br><p>全球可再生能源投资首次超过化石能源，能源转型拐点到来。<br><br> | 来源：<code>https://new-lulu.com.cn
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>拉美多国签署货币互换协议，减少对美元依赖。<br><br> | 来源：<code>https://new-lulushe.com.cn
+</code></p><br><br><h3>全国美术馆年展览超2万场，艺术惠民覆盖千万群众</h3><br><p>全国无偿献血人次突破2000万，临床用血全部来自自愿捐献。<br><br> | 来源：<code>https://new-luotimeinu.com.cn
+</code></p><br><br><h3>万科A地产龙头抗风险能力：行业调整期的稳健经营逻辑</h3><br><p>全球粮食价格指数连续6个月回落，粮食危机压力缓解。<br><br> | 来源：<code>https://new-madouchuanmei.com.cn
+</code></p><br><br><h3>市场永远不缺机会，缺的是耐心等待属于自己的机会</h3><br><p>国内AI算力网络国家枢纽节点全部建成，实现算力全国调度。<br><br> | 来源：<code>https://new-meiridasai.com.cn
+</code></p><br><br><h3>焦炭价格开启第五轮提涨，焦化板块盈利迎来改善</h3><br><p>比亚迪AH股同步走强，量价配合下的交易机会分析。<br><br> | 来源：<code>https://new-mg-tiyu.com.cn
+</code></p><br><br><h3>桂林山水暑期游热度回升，漓江游船日均发船超200艘</h3><br><p>比亚迪AH股同步走强，量价配合下的交易机会分析。<br><br> | 来源：<code>https://new-mianfeikanpian.com.cn
+</code></p><br><br><h3>恒力石化炼化盈利修复，前三季度业绩预增超35%</h3><br><p>地方国资战略入股卫星互联网标的，助力星座组网建设。<br><br> | 来源：<code>https://new-milesports.com.cn
+</code></p><br><br><h3>武当山暑期游客量突破120万人次，道教文化游持续升温</h3><br><p>全国野生东北豹种群数量突破100只，生物链完整性恢复。<br><br> | 来源：<code>https://new-mimijiaoxue.com.cn
+</code></p><br><br><h3>生物育种产业化政策，转基因种业标的走强</h3><br><p>动力电池回收管理办法出台，锂电回收板块全线异动。<br><br> | 来源：<code>https://new-mitaochuanmei.com.cn
+</code></p><br><br><h3>国产AI芯片算力突破256TOPS，支撑大模型高效运行</h3><br><p>北京君正车载存储优势：汽车电子赛道的高景气受益标的。<br><br> | 来源：<code>https://new-mitaoshipin.com.cn
