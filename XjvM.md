@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分30秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿</h3><br><p>国内降准政策落地，大金融板块全线拉升。<br><br> | 来源：<code>https://vip-worldcup-rukou.com
+</code></p><br><br><h3>比亚迪AH股同步涨超6%，6月销量数据超预期</h3><br><p>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级。<br><br> | 来源：<code>https://vip-yy-sports.com.cn
+</code></p><br><br><h3>高管团队集体增持智慧交通标的，合计增持金额超1.2亿</h3><br><p>国内AI生成短视频用户破5亿，短视频行业迎来生产变革。<br><br> | 来源：<code>https://vk-nao-jiaoxin.com.cn
+</code></p><br><br><h3>全国会展经济快速复苏，上半年展览场次同比增长45%</h3><br><p>全国全民健身日活动启动，全国超万场赛事覆盖千万群众。<br><br> | 来源：<code>https://w-ww91com.com.cn
+</code></p><br><br><h3>蒙牛乳业放量上涨3.7%，低温奶业务增速亮眼</h3><br><p>东北振兴新举措出台，推动老工业基地产业转型升级。<br><br> | 来源：<code>https://waiwaimanhua.com.cn
+</code></p><br><br><h3>泸州老窖国窖批价上行，单季业绩预告超预期</h3><br><p>汉缆股份涨超3.9%，电网投资带动订单增长。<br><br> | 来源：<code>https://wan-bo-tiyu.com.cn
+</code></p><br><br><h3>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑</h3><br><p>养老金入市比例提升，养老金重仓标的走强。<br><br> | 来源：<code>https://wang91.com.cn
+</code></p><br><br><h3>贵州茅台站稳1720元，批价回升带动板块情绪</h3><br><p>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善。<br><br> | 来源：<code>https://wangye-banmianfei91.com.cn
+</code></p><br><br><h3>料酒价格上涨4%，调味品细分板块迎来行情</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>https://wangyeban91.cn
+</code></p><br><br><h3>机构专用席位净买入长电科技1.9亿，封测龙头获长线资金加仓</h3><br><p>旅游年卡覆盖超200城，一票通玩激活本地休闲消费。<br><br> | 来源：<code>https://wangyebanmianfei91.com.cn
+</code></p><br><br><h3>全国荒漠化土地面积连续20年缩减，沙化治理成效突出</h3><br><p>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光。<br><br> | 来源：<code>https://wanmei-sports-go.com.cn
+</code></p><br><br><h3>机构专用席位净买入容百科技8800万，高镍正极龙头加仓</h3><br><p>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓。<br><br> | 来源：<code>https://wap-mitaoshipin.com.cn
+</code></p><br><br><h3>普惠小微贷款利率进一步下行，中小微企业盈利改善</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>https://wap-mogushipin.com.cn
+</code></p><br><br><h3>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升</h3><br><p>招商银行净息差企稳，前三季度业绩预增超15%。<br><br> | 来源：<code>https://web-19tiyu.com.cn
+</code></p><br><br><h3>白卡纸价格连续上涨8%，白卡纸龙头盈利弹性释放</h3><br><p>循环经济发展规划，资源回收标的全线拉升。<br><br> | 来源：<code>https://web-beibo-sports.com.cn
+</code></p><br><br><h3>国内自驾游人次破10亿，新能源自驾路线成热门选择</h3><br><p>陕西煤业放量上涨3.1%，煤炭供需格局保持稳健。<br><br> | 来源：<code>https://web-jiubo-sports.com.cn
+</code></p><br><br><h3>招商银行零售银行优势：高ROE背后的经营质量解析</h3><br><p>财政部新增专项债限额1.5万亿元，重点支持基建项目建设。<br><br> | 来源：<code>https://web-ld-tiyu.com.cn
+</code></p><br><br><h3>家电以旧换新政策加码，白电板块集体反弹</h3><br><p>跨境支付龙头登陆港股，海外结算规模年增速超80%。<br><br> | 来源：<code>https://web-mitao.com.cn
+</code></p><br><br><h3>比亚迪全产业链布局分析：从电池到整车的协同优势</h3><br><p>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位。<br><br> | 来源：<code>https://web-mitaoshipin.com.cn
+</code></p><br><br><h3>社保基金新进汽车座椅龙头，布局汽车轻量化赛道</h3><br><p>海螺水泥涨超3.7%，基建投资增速回暖带动需求。<br><br> | 来源：<code>https://web-mogushipin.com.cn
