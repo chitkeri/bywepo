@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%</h3><br><p>知名私募组团调研MR产业链标的，新品备货数据曝光。<br><br> | 来源：<code>https://buxihuansesedewoma.net.cn
+</code></p><br><br><h3>中国铁建全球工程布局：轨交基建龙头的海外市场拓展</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>https://buy-2026worldcup-cn.com
+</code></p><br><br><h3>德业股份异动拉升6.8%，储能逆变器盈利超预期</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>https://buy-worldcup-guide.com
+</code></p><br><br><h3>全国水泥行业碳减排技术升级，低碳生产线占比超60%</h3><br><p>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加。<br><br> | 来源：<code>https://buyu-dazuozhan-fuzhu.com
+</code></p><br><br><h3>全国首套房住房贷款"认房不认贷"政策全面落地</h3><br><p>全国碳市场覆盖行业扩围至8个，交易活跃度大幅提升。<br><br> | 来源：<code>https://cai-mogu.com.cn
+</code></p><br><br><h3>中际旭创客户优势：全球云厂商的深度绑定合作关系</h3><br><p>极端高温天气来袭，电力运营板块集体拉升。<br><br> | 来源：<code>https://caimogu-shequ.com.cn
+</code></p><br><br><h3>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%</h3><br><p>东方电气放量上涨4.1%，风电设备订单饱满。<br><br> | 来源：<code>https://caimogushequ.com.cn
+</code></p><br><br><h3>蒙牛乳业放量上涨3.7%，低温奶业务增速亮眼</h3><br><p>定向降准支持县域金融机构，乡村振兴板块迎来利好。<br><br> | 来源：<code>https://cang-jing-ying.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿</h3><br><p>全国青少年篮球联赛参赛人数破百万，校园篮球氛围火爆。<br><br> | 来源：<code>https://cangjingkong.com.cn
+</code></p><br><br><h3>湖南投资涨超2.1%，长沙路桥业务持续向好</h3><br><p>紫金矿业资源储备优势：黄金铜价上行周期的业绩弹性。<br><br> | 来源：<code>https://cangjingyou.com.cn
+</code></p><br><br><h3>航发动力军机交付超预期，前三季度业绩预增超30%</h3><br><p>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序。<br><br> | 来源：<code>https://cao-bi-dongtaitu.com.cn
+</code></p><br><br><h3>全国居民恩格尔系数降至28.5%，消费结构持续优化升级</h3><br><p>酱油价格单月上涨5%，调味品龙头盈利弹性释放。<br><br> | 来源：<code>https://cao-liu.cn
+</code></p><br><br><h3>全国县域经济百强榜发布，东部地区占比超七成</h3><br><p>大金重工放量上涨5.7%，风电塔筒全球份额领先。<br><br> | 来源：<code>https://cao-liudizhi.cn
+</code></p><br><br><h3>上半年全国集成电路产量同比增长18%，产业链自主可控推进</h3><br><p>高管团队集体调研后增持冷链物流标的，合计增持超8000万。<br><br> | 来源：<code>https://cao-liujishutaolunqu.cn
+</code></p><br><br><h3>全球光伏装机量突破18亿千瓦，清洁能源普及加速</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>https://cao-liuluntan.cn
+</code></p><br><br><h3>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光</h3><br><p>氢能示范城市群政策落地，氢能源板块全线走强。<br><br> | 来源：<code>https://cao-liushequ.cn
+</code></p><br><br><h3>钠离子电池实现装车应用，钠电池产业链全线爆发</h3><br><p>全国候鸟栖息地保护网络建成，每年迁徙候鸟超千万只。<br><br> | 来源：<code>https://cao-liuwang.cn
+</code></p><br><br><h3>全面降准叠加LPR下调，市场流动性环境显著优化</h3><br><p>存款利率下调推动居民储蓄搬家，权益市场增量资金入场。<br><br> | 来源：<code>https://caodengheshang.cn
+</code></p><br><br><h3>中国中车海外订单落地，单季业绩预告超预期</h3><br><p>长三角一体化新规划落地，长三角本地股集体拉升。<br><br> | 来源：<code>https://caoliuapp.cn
+</code></p><br><br><h3>暑期托管服务全面推行，免费提供兴趣课程和作业辅导</h3><br><p>知名私募大手笔增持TOPCon电池标的，持仓占比达4%。<br><br> | 来源：<code>https://caoliucl.cn
