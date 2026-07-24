@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分27秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>AI语音合成技术突破，克隆声音仅需3秒样本</h3><br><p>美联储降息后全球流动性宽松，成长板块估值抬升。<br><br> | 来源：<code>https://ribennuyou.com.cn
+</code></p><br><br><h3>多地优化楼市限购政策，取消二环外住房限购限制</h3><br><p>全国碳市场覆盖行业扩围至8个，交易活跃度大幅提升。<br><br> | 来源：<code>https://ribenwuma.org.cn
+</code></p><br><br><h3>恒瑞医药涨超5%，创新药管线进入收获期</h3><br><p>汉缆股份输配电布局：国内电缆行业的龙头成长路径。<br><br> | 来源：<code>https://ribenyiji.cn
+</code></p><br><br><h3>国际金价创历史新高，黄金珠宝标的集体上涨</h3><br><p>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期。<br><br> | 来源：<code>https://ribenyiji.com.cn
+</code></p><br><br><h3>百亿私募组团调研6G通信企业，技术试验进度超市场预期</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>https://ribenyijibukayierqu.com.cn
+</code></p><br><br><h3>中兴通讯涨超4%，6G技术研发进度超市场预期</h3><br><p>全球智能家居市场规模突破1万亿美元，智慧家庭普及。<br><br> | 来源：<code>https://rihan-wuma.com.cn
+</code></p><br><br><h3>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%</h3><br><p>比亚迪AH股同步走强，量价配合下的交易机会分析。<br><br> | 来源：<code>https://rihan-zaixian.com.cn
+</code></p><br><br><h3>芯片价格开启涨价潮，半导体板块盈利迎来修复</h3><br><p>全国骑行赛事超千场，骑行运动参与人数破5000万。<br><br> | 来源：<code>https://rihanjingpin.com.cn
+</code></p><br><br><h3>五粮液品牌价值分析：浓香型白酒龙头的估值逻辑</h3><br><p>养老金新进虚拟电厂标的，首次布局电力信息化赛道。<br><br> | 来源：<code>https://rihanjiujiu.com.cn
+</code></p><br><br><h3>多地景区推出免票政策，国有A级景区免票覆盖超300家</h3><br><p>知名私募调研钙钛矿设备标的，核心设备交付周期缩短。<br><br> | 来源：<code>https://rihansanji.com.cn
+</code></p><br><br><h3>电阻产品价格上调4%，被动元件板块迎来行情</h3><br><p>敦煌研究院数字文创营收突破5亿元，千年文化触达年轻群体。<br><br> | 来源：<code>https://rihanwuma.com.cn
+</code></p><br><br><h3>生物育种企业开启新股申购，转基因商业化落地节奏领先</h3><br><p>地震应急响应升级，灾后重建板块异动。<br><br> | 来源：<code>https://rihanyiqu.com.cn
+</code></p><br><br><h3>中国通号高铁信号订单高增，单季业绩预告超预期</h3><br><p>国内大模型专利申请量全球第一，占比超60%。<br><br> | 来源：<code>https://rihanzaixian.com.cn
+</code></p><br><br><h3>意大利经济增速超预期，旅游业拉动经济强劲增长</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>https://rihanzaixianmianfeiguankan.com.cn
+</code></p><br><br><h3>三亚暑期酒店预订量同比增长35%，滨海度假持续火热</h3><br><p>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑。<br><br> | 来源：<code>https://rihanzaixianyongjiuyuming.com.cn
+</code></p><br><br><h3>平遥古城暑期推出实景演出，夜间场次上座率超100%</h3><br><p>机构资金集中买入华域汽车7800万，零部件龙头获抱团。<br><br> | 来源：<code>https://ririshipin.com.cn
+</code></p><br><br><h3>保险资管扎堆调研养老产业标的，养老社区入住率数据披露</h3><br><p>中超联赛第20轮，上海申花6-0大胜对手稳居积分榜榜首。<br><br> | 来源：<code>https://rou-rou-wu.com.cn
+</code></p><br><br><h3>央行下调再贷款利率，精准支持科技创新领域</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光。<br><br> | 来源：<code>https://rouputuan.com.cn
+</code></p><br><br><h3>降准降息组合拳落地，大金融板块率先迎来行情催化</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>https://rpghuangyou.com.cn
+</code></p><br><br><h3>闻泰科技ODM+半导体双轮驱动：平台型企业的成长逻辑</h3><br><p>两融余额创阶段新高，券商杠杆业务标的异动。<br><br> | 来源：<code>https://ruanmengtutujiang.com.cn
