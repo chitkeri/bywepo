@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国与海湾国家合作深化，能源、金融多领域协同发展</h3><br><p>市场情绪疯狂时要冷静，情绪低迷时要保持信心。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>网络游戏管理新规落地，游戏板块情绪修复上涨</h3><br><p>全国疫苗接种覆盖率保持99%以上，免疫规划覆盖所有适龄人群。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>阳光电源跳空高开，缺口支撑下的短期趋势判断</h3><br><p>央行逆回购操作利率下调，短期资金面维持宽松。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>全球半导体产业周期复苏，销售额同比增长18%创历史新高。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>降准降息组合利好地产链，建材板块迎来估值修复</h3><br><p>中国电建新能源电站运营：电力工程龙头的第二成长曲线。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>中国中铁放量上涨3.0%，一带一路订单同比翻倍</h3><br><p>东方电气风电设备订单爆发，前三季度业绩预增超35%。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>实控人兜底式增持游戏出海龙头，员工响应参与超预期</h3><br><p>腾讯混元大模型企业服务升级，助力政务、金融行业数字化。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>头部机构组团到访创新药龙头，核心管线临床三期数据披露</h3><br><p>浪潮信息AI服务器出货超预期，单季业绩预增150%。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>外资机构席位大额买入药明康德5亿，CXO赛道获外资加仓。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>水利工程建设规划，水利基建板块走强</h3><br><p>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>10年期国债收益率下行至2.5%以下，权益资产吸引力提升</h3><br><p>多地景区推出免票政策，国有A级景区免票覆盖超300家。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>北向资金连续加仓东方财富，互联网券商获外资持续流入</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>百亿私募组团调研生物育种标的，玉米种子推广面积超预期</h3><br><p>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>超180家机构到访汽车轻量化标的，一体化压铸产能释放</h3><br><p>全国步行街改造升级完成，200条示范街夜间营收占比超70%。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>农产品深加工扶持政策，农产品加工标的全线拉升</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>知名私募大手笔增持乳制品龙头，持仓占比达3.5%</h3><br><p>音乐节市场上半年演出超500场，年轻群体消费占比超80%。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>北向资金连续增持工业母机龙头，高端制造获外资持续流入</h3><br><p>天津建投异动拉升2.8%，天津基建投资持续增长。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全国城市餐厨垃圾处理能力突破10万吨/日，资源化利用</h3><br><p>全球粮食价格指数连续6个月回落，粮食危机压力缓解。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>紫金矿业成本优势：全球铜金龙头的低成本矿产资源储备</h3><br><p>国际地缘与全球经济（100条）。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>长安汽车放量上涨4.9%，深蓝品牌月销破3万</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>www.zkcom-iot.com
