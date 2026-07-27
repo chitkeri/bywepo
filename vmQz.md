@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分33秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国老字号品牌超万家，国潮复兴带动传统产业转型升级</h3><br><p>小鹏汽车单季交付破3万，业绩亏损大幅收窄。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>央行下调再贷款利率，精准支持科技创新领域</h3><br><p>小米汽车交付量超预期，小米汽车产业链全线爆发。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>大模型在交通领域应用，城市拥堵率下降20%</h3><br><p>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>甘肃建投涨超3.0%，一带一路西北基建项目推进</h3><br><p>全国塑料污染治理专项行动推进，一次性塑料制品减量30%。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>全国居民恩格尔系数降至28.5%，消费结构持续优化升级</h3><br><p>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>磷肥价格单月上涨8%，磷化工龙头盈利改善</h3><br><p>QFII集中调研宠物食品龙头，海外市场渗透率数据公开。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>北京马拉松参赛规模扩至3万人，报名人数破50万创新高</h3><br><p>智能制造政策升级，机器人自动化板块集体上涨。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>北向资金单日净流入超150亿，降息后外资加速入场</h3><br><p>亿纬锂能涨超6%，储能业务新增订单持续落地。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>美联储连续降息后美元走弱，原油价格迎来趋势性反弹</h3><br><p>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>零跑汽车高性价比路线：下沉市场新能源车企的成长逻辑</h3><br><p>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>洽洽食品坚果业务高增，前三季度业绩预增超30%</h3><br><p>纸价开启新一轮提价潮，造纸板块盈利迎来修复。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>农村物流体系建设规划，乡村物流标的全线异动</h3><br><p>北方华创半导体设备订单爆发，单季业绩预增超80%。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>被动元器件价格集体上涨，电子板块盈利边际改善</h3><br><p>北向资金大额增持中国平安，保险龙头外资持仓创阶段新高。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>亨通光电涨超4.4%，海洋能源业务贡献增量</h3><br><p>国内文创产品市场规模破千亿，故宫文创年营收超20亿。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>文化纸价格单月上涨6%，纸企盈利边际改善</h3><br><p>存款利率市场化改革深化，银行负债成本持续优化。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>锂矿板块触底反弹：行业拐点是否已经正式确立</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>多地推出“文旅+农业”融合项目，采摘游订单同比增长80%</h3><br><p>蒙牛乳业低温奶布局：乳制品行业第二增长曲线解析。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>五粮液重回160元，消费板块复苏逻辑逐步验证</h3><br><p>全国碳市场覆盖行业扩围至8个，交易活跃度大幅提升。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>家电以旧换新政策加码，白电板块集体反弹</h3><br><p>通威股份低位反弹，光伏产业链盈利预期改善。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>中国女子网球选手郑钦文闯入美网四强，世界排名升至第三</h3><br><p>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功</h3><br><p>铅价上涨7%，铅酸电池板块盈利边际改善。<br><br> | 来源：<code>www.winfae.com
