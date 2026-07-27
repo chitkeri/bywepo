@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分54秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>奥地利经济复苏，旅游业和制造业双回暖</h3><br><p>汽车数据安全管理新规，汽车软件板块集体上涨。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期</h3><br><p>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>润和软件涨超7.2%，鸿蒙生态业务落地加速</h3><br><p>结构性降息精准支持制造业，高端制造板块获定向利好。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>中国男子篮球队亚洲杯闯入决赛，时隔10年重返领奖台</h3><br><p>哈尔滨暑期游热度反超冬季，冰雪大世界夏季版开园迎客。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>粤高速A异动拉升2.6%，大湾区车流量高增</h3><br><p>产业链产品涨价类（100个）。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>安琪酵母海外收入爆发，单季业绩预告超预期</h3><br><p>全国汽车拉力赛超20站，赛车运动爱好者规模破百万。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>新能源汽车销量上半年突破550万辆，市场渗透率达48%</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>全面降准0.25个百分点，释放长期资金5000亿</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>京沪高铁涨超2.9%，暑运客流数据超预期</h3><br><p>牧原股份养殖成本下降，单季业绩预告环比扭亏。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>国家统计局发布新动能指数，同比增长17%创新高</h3><br><p>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>全国企业债券发行规模上半年达3.5万亿元，直接融资占比提升</h3><br><p>国务院出台6方面24条政策，进一步扩大对外开放。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>全国居民人均可支配收入同比增长6.2%，跑赢GDP增速</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>张家界暑期游客量突破300万人次，山岳旅游热度攀升</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>游戏版号常态化发放，游戏板块持续异动</h3><br><p>国产现实题材电视剧收视领跑，多部作品斩获国际奖项。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才</h3><br><p>储能装机强制配比政策升级，储能产业链标的拉升。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>江淮汽车与华为合作：传统车企与科技巨头的协同价值</h3><br><p>天然气价格季节性上涨，燃气运营板块异动。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>新希望异动拉升3.9%，生猪出栏量持续高增</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>东方雨虹企稳反弹4.2%，地产链需求边际改善</h3><br><p>国内大模型产业联盟成立，联合攻关核心技术短板。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>全国居民恩格尔系数降至28.5%，消费结构持续优化升级</h3><br><p>降准释放资金超万亿，流动性宽松支撑A股估值抬升。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>网络视听内容监管优化，长视频平台标的拉升</h3><br><p>全球冷链物流市场规模突破4000亿美元，生鲜贸易增长。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户</h3><br><p>全国城市马拉松赛事数量突破1500场，覆盖所有省份。<br><br> | 来源：<code>www.jieruit.com
