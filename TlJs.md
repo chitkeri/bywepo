@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>钙钛矿光伏组件效率破纪录，新型光伏标的拉升</h3><br><p>风电并网消纳政策优化，风电运营板块全线走强。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径</h3><br><p>平遥古城暑期游客量突破150万人次，晋商文化体验游火热。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>三星堆新出土文物超千件，古蜀文明研究取得重大突破</h3><br><p>锂矿板块触底反弹：行业拐点是否已经正式确立。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>深股通席位单日买入海天味业6100万，调味品标的增持</h3><br><p>天赐材料电解液成本控制：行业龙头的规模优势解析。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>宠物友好景区数量破千，携宠出游成为家庭消费新选择</h3><br><p>牧原股份疫病防控能力：生猪养殖龙头的核心经营壁垒。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>头部机构组团到访创新药龙头，核心管线临床三期数据披露。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>外资机构席位大额买入药明康德5亿，CXO赛道获外资加仓。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>百亿私募组团到访人形机器人标的，核心零部件产能引关注</h3><br><p>瓦楞纸价格上调4%，造纸板块迎来全面涨价催化。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>QFII集中调研医药流通龙头，院外市场拓展节奏披露</h3><br><p>生猪价格突破18元/公斤，养殖板块盈利拐点显现。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算</h3><br><p>汽车数据安全管理新规，汽车软件板块集体上涨。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>美的集团创年内新高，海外家电收入增速超20%</h3><br><p>F1中国大奖赛上海站落幕，周冠宇获本土最佳第四名创历史。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>华友钴业异动拉升5.3%，新能源金属需求回暖</h3><br><p>理想汽车涨超8.5%，L系列车型月销破4万。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>中国五子连珠队世界杯包揽全部金牌，优势项目无人能敌</h3><br><p>全国全民阅读指数达72分，人均年阅读纸质书超8本。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>宠物食品企业开启新股申购，海外自主品牌占比突破40%</h3><br><p>国产现实题材电视剧收视领跑，多部作品斩获国际奖项。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>国产航母新进展，军工船舶板块集体异动</h3><br><p>汉缆股份涨超3.9%，电网投资带动订单增长。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>钙钛矿光伏组件效率破纪录，新型光伏标的拉升</h3><br><p>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>敬畏市场：无论你研究得多深，市场永远有你预料不到的变化</h3><br><p>工业硅价格触底反弹15%，光伏硅料成本端压力下降。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期</h3><br><p>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中国通号涨超3.4%，高铁信号系统份额领先</h3><br><p>降准释放长期资金支持新能源，绿电板块迎来定向利好。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>生物育种产业化政策，转基因种业标的走强</h3><br><p>世界文化遗产新增2处，我国世遗总数增至60处。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>量子信息产业规划发布，量子通信标的全线拉升</h3><br><p>新疆交建新疆基建项目爆发，单季业绩预告超预期。<br><br> | 来源：<code>www.vetb-us.com
