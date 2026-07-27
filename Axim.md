@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分36秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>大模型在铁路领域应用，调度系统安全性和效率双提升。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>乳制品价格小幅上调，乳业龙头盈利边际改善</h3><br><p>实控人溢价15%增持碳纤维企业，传递长期发展信心。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>全国千岛湖水质保持Ⅰ类，成为重要饮用水源地标杆</h3><br><p>中国田径队世锦赛斩获3金，男子跳远打破尘封20年纪录。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>北向资金单日净流入超150亿，降息后外资加速入场</h3><br><p>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>量子计算原型机新突破，量子科技板块集体拉升</h3><br><p>AI音乐生成工具普及，原创音乐产出效率提升10倍。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>希腊经济强劲复苏，成为欧元区增长明星</h3><br><p>全国步行街改造升级完成，200条示范街夜间营收占比超70%。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国重点海域入海排污口整治完成，海洋污染源头管控加强</h3><br><p>三星堆新出土文物超千件，古蜀文明研究取得重大突破。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>游资知名席位联手买入浙江建投1.6亿，基建标的获资金追捧</h3><br><p>汽车大模型落地智能座舱，语音交互响应速度低于1秒。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>存量房贷利率下调释放万亿现金流，可选消费板块弹性最大</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑</h3><br><p>全球粮食安全峰会召开，达成百亿美元援助计划应对饥荒。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>天顺风能异动拉升4.6%，风电塔架订单高增</h3><br><p>福耀玻璃全球汽车玻璃布局：细分赛道全球龙头的壁垒。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>全国储能装机容量突破3亿千瓦，新型储能占比超60%</h3><br><p>保险资管连续增持AI安防龙头，海外订单高增获机构认可。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>当升科技涨超5.1%，正极材料海外订单增长</h3><br><p>中国平安寿险改革成效：新业务价值增速转正的底层逻辑。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>磷肥价格单月上涨8%，磷化工龙头盈利改善</h3><br><p>高管团队集体增持低空飞行器标的，合计增持超7000万。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>5年期以上LPR大幅下调20BP，地产链板块全线异动</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>5年期LPR下调带动居民购房意愿回升，地产销售边际改善</h3><br><p>国内政策性降息落地，宽信用进程加速推进。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>多地推出“文旅+科技”项目，元宇宙景区落地超100家</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>国产纪录片全网播放量突破150亿次，自然人文题材广受好评</h3><br><p>亿纬锂能异动拉升6.3%，大储订单持续超预期。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>汉缆股份输配电布局：国内电缆行业的龙头成长路径</h3><br><p>全国光伏装机容量突破9亿千瓦，分布式光伏占比超60%。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>中国中车海外订单落地，单季业绩预告超预期</h3><br><p>东方财富放量大涨，券商异动下的人气激活信号。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>中国神华创阶段新高2.8%，高股息属性持续获资金追捧</h3><br><p>伊朗与沙特深化合作，双边贸易额同比暴涨80%。<br><br> | 来源：<code>www.tpyqczl.com
