@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国居民平均每日运动时长超1小时，运动习惯逐步养成</h3><br><p>硅锰价格单月上涨9%，铁合金板块盈利改善。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>医疗器械创新绿色通道，创新器械板块异动</h3><br><p>炒股最难的不是买对，而是在波动里守住正确的持仓。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>人民币汇率升值至6.8关口，航空板块汇兑收益大幅增加</h3><br><p>美的集团创年内新高，多头排列下的趋势延续性。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>风电塔筒价格单月上涨6%，风电制造环节盈利改善</h3><br><p>全国美术馆年展览超2万场，艺术惠民覆盖千万群众。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>存储模组龙头登陆科创板，AI存储产品出货量超行业预期</h3><br><p>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>中国中车海外订单落地，单季业绩预告超预期</h3><br><p>蒙牛乳业放量上涨3.7%，低温奶业务增速亮眼。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>天然气价格季节性上涨，燃气运营板块异动</h3><br><p>中天科技海缆+储能协同：多元化能源企业的成长逻辑。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>哈尔滨暑期游热度反超冬季，冰雪大世界夏季版开园迎客</h3><br><p>英伟达发布新一代AI芯片，算力板块再度走强。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>焦炭价格开启第五轮提涨，焦化板块盈利迎来改善</h3><br><p>中国五子连珠队世界杯包揽全部金牌，优势项目无人能敌。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>薯片产品价格上调4%，零食板块迎来涨价催化</h3><br><p>全球气候变化大会预备会召开，各国提交新减排承诺。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>腾讯混元大模型企业服务升级，助力政务、金融行业数字化</h3><br><p>海上风电深远海规划，深远海风电板块集体上涨。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>五粮液重回160元，消费板块复苏逻辑逐步验证</h3><br><p>政策性银行加大降息力度，基建项目融资成本大幅下降。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>河北建工涨超2.7%，雄安新区基建订单饱满</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>璞泰来负极材料盈利改善，前三季度业绩预增超40%</h3><br><p>大模型在城市治理领域应用，事件处理响应速度提升3倍。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>车联网安全标准出台，车联网板块集体上涨</h3><br><p>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>海大集团涨超3.5%，饲料业务市占率稳步提升</h3><br><p>金砖国家新开发银行新增贷款规模突破500亿美元。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>装配式建筑推广政策，装配式建筑标的全线异动</h3><br><p>蚝油产品价格上调3%，调味品全产业链盈利优化。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>互联网平台经济政策回暖，中概股联动标的上涨</h3><br><p>北方稀土行业地位：稀土全产业链龙头的政策红利。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>粤港澳大湾区政策升级，湾区地产基建标的走强</h3><br><p>德业股份异动拉升6.8%，储能逆变器盈利超预期。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>美联储第三次降息落地，全球风险偏好显著提升</h3><br><p>北方稀土异动拉升5.4%，稀土产品价格反弹。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析</h3><br><p>绿色建材认证政策，绿色建材板块走强。<br><br> | 来源：<code>www.yinxi.net
