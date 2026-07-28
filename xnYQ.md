@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国网球选手首次夺得大满贯单打冠军，创造历史突破</h3><br><p>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧。<br><br> | 来源：<code>https://91-wang.com.cn
+</code></p><br><br><h3>全国公积金贷款政策优化，支持居民合理住房需求</h3><br><p>五粮液品牌与渠道优势：浓香型白酒龙头的护城河解析。<br><br> | 来源：<code>https://91-www.cn
+</code></p><br><br><h3>葡萄牙经济增速达2.3%，旅游业持续拉动增长</h3><br><p>宝钢股份企稳回升，钢铁行业盈利预期边际改善。<br><br> | 来源：<code>https://91-xiazai.com.cn
+</code></p><br><br><h3>国产大模型出海加速，东南亚市场份额突破30%</h3><br><p>QFII集中调研国产EDA企业，全流程工具突破引关注。<br><br> | 来源：<code>https://91-zaixianguankan.com.cn
+</code></p><br><br><h3>华为盘古大模型行业落地，工业AI板块持续升温</h3><br><p>白银价格单月上涨12%，贵金属板块集体异动。<br><br> | 来源：<code>https://9170-guanfang-jinsha.com
+</code></p><br><br><h3>长电科技放量上涨4.8%，先进封装订单饱满</h3><br><p>中国帆船队奥运会夺得金牌，蓝色海洋运动取得重大突破。<br><br> | 来源：<code>https://9170-jinsha-official.com
+</code></p><br><br><h3>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团</h3><br><p>保险资管扎堆调研航空发动机标的，量产交付进度引关注。<br><br> | 来源：<code>https://9170-mobile-login.com
+</code></p><br><br><h3>锂矿板块触底反弹：行业拐点是否已经正式确立</h3><br><p>锂价连续反弹15%，锂矿板块迎来趋势性行情启动。<br><br> | 来源：<code>https://9170-sands-official.com
+</code></p><br><br><h3>山西汾酒涨超5.1%，青花系列全国化推进加速</h3><br><p>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露。<br><br> | 来源：<code>https://91cangku.cn
+</code></p><br><br><h3>长安汽车自主转型路径：从传统燃油车到新能源的蜕变</h3><br><p>央行降准降息组合拳落地，A股市场迎来全面估值修复。<br><br> | 来源：<code>https://91ci-yuan.com.cn
+</code></p><br><br><h3>全球电动汽车销量突破2500万辆，市场份额持续提升</h3><br><p>三安光电化合物半导体布局：LED+碳化硅的长期空间。<br><br> | 来源：<code>https://91ciyuan.com.cn
+</code></p><br><br><h3>北方稀土政策壁垒：稀土开采总量控制下的稀缺性价值</h3><br><p>产业资本连续增持智能电网标的，特高压产业链获资本布局。<br><br> | 来源：<code>https://91ciyuanguanwangrukou.com.cn
+</code></p><br><br><h3>沪硅产业硅片国产替代：12英寸大硅片的产能释放逻辑</h3><br><p>暑期亲子游订单同比增长45%，研学旅行成为消费新热点。<br><br> | 来源：<code>https://91cncom.cn
+</code></p><br><br><h3>蒙牛乳业放量上涨3.7%，低温奶业务增速亮眼</h3><br><p>海产品全产业链涨价，水产板块全面异动。<br><br> | 来源：<code>https://91cncom.com.cn
+</code></p><br><br><h3>机构+北向合力买入东方雨虹7700万，建材龙头获资金布局</h3><br><p>泰胜风能涨超5.0%，海外风电塔架出口爆发。<br><br> | 来源：<code>https://91com.com.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>https://91con.cn
+</code></p><br><br><h3>知名私募调研钠电池龙头，量产线投产时间点首次公开</h3><br><p>皖通高速涨超2.1%，安徽区域路网盈利稳健。<br><br> | 来源：<code>https://91con.com.cn
+</code></p><br><br><h3>3D生成大模型技术突破，1分钟生成高精度工业模型</h3><br><p>运达股份放量上涨5.3%，风电整机盈利修复。<br><br> | 来源：<code>https://91cwang.cn
+</code></p><br><br><h3>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿</h3><br><p>外资单日扫货恒瑞医药9亿，创新药龙头外资持仓回升。<br><br> | 来源：<code>https://91dashijian.cn
+</code></p><br><br><h3>机构+北向合力买入新希望6700万，养殖标的获资金布局</h3><br><p>科技成长行情延续：AI算力、半导体、光模块的景气度排序。<br><br> | 来源：<code>https://91dashijian.com.cn
