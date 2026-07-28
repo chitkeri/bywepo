@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分40秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>欧盟第21轮对俄制裁方案通过，覆盖能源、金融多领域</h3><br><p>产业基金组团调研后集中增持光模块企业，合计投入超10亿。<br><br> | 来源：<code>https://17ccc.com.cn
+</code></p><br><br><h3>自动驾驶大模型落地，城市NOA覆盖全国所有城市道路</h3><br><p>海螺水泥涨超3.7%，基建投资增速回暖带动需求。<br><br> | 来源：<code>https://17cccc.com.cn
+</code></p><br><br><h3>超150家机构到访工业机器人标的，产能利用率突破90%</h3><br><p>超240家机构到访氢能燃料电池标的，商用车推广数据公开。<br><br> | 来源：<code>https://17ccccyiqicao.com.cn
+</code></p><br><br><h3>降准释放资金补充银行流动性，信贷投放能力显著提升</h3><br><p>超190家机构到访储能电池标的，海外户储订单超预期。<br><br> | 来源：<code>https://17ccchigua.com.cn
+</code></p><br><br><h3>全国扬子鳄野生种群数量突破2万只，野外放归成效显著</h3><br><p>土耳其经济通胀回落至30%，金融市场逐步稳定。<br><br> | 来源：<code>https://17cccmeiridasai.com.cn
+</code></p><br><br><h3>人民币对美元汇率升值至6.7关口，外汇储备规模稳定在3.3万亿美元</h3><br><p>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%。<br><br> | 来源：<code>https://17cchigua.com.cn
+</code></p><br><br><h3>中国女子篮球WNBA选手韩旭率队闯入季后赛，表现惊艳</h3><br><p>地方国资战略入股种业龙头，助力生物育种商业化落地。<br><br> | 来源：<code>https://17ccn.com.cn
+</code></p><br><br><h3>航发动力放量拉升5.2%，军工发动机订单落地加速</h3><br><p>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑。<br><br> | 来源：<code>https://17ccom.com.cn
+</code></p><br><br><h3>调味品开启集体涨价，食品板块盈利迎来修复</h3><br><p>成都大运会成功举办一周年，赛事遗产带动城市文旅增长。<br><br> | 来源：<code>https://17ccomchigua.com.cn
+</code></p><br><br><h3>澜起科技内存接口芯片优势：全球细分赛道的龙头价值</h3><br><p>中国冲浪队首次获得世界冠军，水上运动版图持续扩大。<br><br> | 来源：<code>https://17ccomgithub.com.cn
+</code></p><br><br><h3>2026年全球经济增速达3.2%，实现温和复苏稳步增长</h3><br><p>镍价单月上涨11%，不锈钢板块迎来涨价催化。<br><br> | 来源：<code>https://17ccomqicao.com.cn
+</code></p><br><br><h3>云南建投放量上涨3.4%，南亚基建订单落地加速</h3><br><p>降准释放长期资金支持基建，建筑板块迎来估值修复。<br><br> | 来源：<code>https://17ccomrukou.com.cn
+</code></p><br><br><h3>陕西煤业高股息兑现，单季业绩预告超预期</h3><br><p>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域。<br><br> | 来源：<code>https://17ccomyiqicao.com.cn
+</code></p><br><br><h3>北向资金单日买入隆平高科5900万，种业龙头获外资流入</h3><br><p>美联储连续降息后美元走弱，原油价格迎来趋势性反弹。<br><br> | 来源：<code>https://17ccomyiqicaozaixian.com.cn
+</code></p><br><br><h3>全国京津冀生态环境联建联防联治，空气质量同比改善10%</h3><br><p>机构资金集中买入华域汽车7800万，零部件龙头获抱团。<br><br> | 来源：<code>https://17ccwang.com.cn
+</code></p><br><br><h3>全国人均体育场地面积达2.8平方米，健身设施供给持续增加</h3><br><p>东莞控股放量上涨2.2%，珠三角车流量高增。<br><br> | 来源：<code>https://17ccyiqicao.com.cn
+</code></p><br><br><h3>钴价连续上涨13%，3C电池板块盈利提升</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>https://17cczaixianguankan.com.cn
+</code></p><br><br><h3>海大集团饲料市占率提升，单季业绩预告超预期</h3><br><p>全国新能源装机容量突破21亿千瓦，占总装机比重超52%。<br><br> | 来源：<code>https://17cmeiridasai.com.cn
+</code></p><br><br><h3>泰胜风能海外出口优势：风电塔架出口龙头的成长逻辑</h3><br><p>5年期LPR超预期下调，地产链迎来全面行情催化。<br><br> | 来源：<code>https://17cmocqicaotangxinzaixiankan.com.cn
+</code></p><br><br><h3>大秦铁路煤炭运输量回升，前三季度业绩预增超20%</h3><br><p>尿素价格单月上涨9%，化肥板块迎来产品涨价催化。<br><br> | 来源：<code>https://17cmwang.com.cn
